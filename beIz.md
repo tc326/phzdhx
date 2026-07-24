@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时08分09秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>比亚迪涨超6.7%，刀片电池外供比例持续提升</h3><br><p>牧原股份养殖成本下降，单季业绩预告环比扭亏。<br><br> | 来源：<code>https://zh-mianfeidianying.com.cn
+</code></p><br><br><h3>新希望全产业链布局：从饲料到养殖的协同优势解析</h3><br><p>海天味业调味品渠道优势：国内调味品龙头的下沉网络。<br><br> | 来源：<code>https://zh-mitao-yingshi.com.cn
+</code></p><br><br><h3>锂电铝箔价格上调5%，铝箔上市公司盈利弹性释放</h3><br><p>注册制全面落地，券商投行业务标的全线拉升。<br><br> | 来源：<code>https://zh-mitaochuanmei.com.cn
+</code></p><br><br><h3>地震应急响应升级，灾后重建板块异动</h3><br><p>中国棒球队首次晋级世界杯决赛圈，棒球运动迎来新发展。<br><br> | 来源：<code>https://zh-mitaoshipin.com.cn
+</code></p><br><br><h3>实控人邀约收购光刻胶标的，溢价40%发起部分要约收购</h3><br><p>全球文化产业规模突破2.5万亿美元，数字文化占比提升。<br><br> | 来源：<code>https://zh-mitaotv.com.cn
+</code></p><br><br><h3>大北农异动拉升3.7%，种业业务贡献新增量</h3><br><p>集成电路税收减免政策延长，芯片全板块集体上涨。<br><br> | 来源：<code>https://zh-mitaowangzhan.com.cn
+</code></p><br><br><h3>电解铝价格突破2万元/吨，铝业上市公司盈利弹性释放</h3><br><p>金融大模型赋能投研，AI研报生成效率提升5倍。<br><br> | 来源：<code>https://zh-mitaoyingshi.com.cn
+</code></p><br><br><h3>基金公司集体到访建筑光伏一体化标的，订单爆发式增长</h3><br><p>体育产业消费刺激政策，体育消费标的全线异动。<br><br> | 来源：<code>https://zh-mitaozaixian.com.cn
+</code></p><br><br><h3>江苏建工放量上涨3.3%，江苏区域基建投资回暖</h3><br><p>正邦科技债务重组：养殖企业困境反转的案例解析。<br><br> | 来源：<code>https://zh-miya.com.cn
+</code></p><br><br><h3>国家文化数字化战略落地，文化资源线上共享覆盖全民</h3><br><p>全球农业科技市场规模突破3000亿美元，智慧农业普及。<br><br> | 来源：<code>https://zh-mogushipin.com.cn
+</code></p><br><br><h3>5年期LPR超预期下调，房企融资环境边际改善</h3><br><p>头部券商到访调味品龙头，渠道库存去化周期数据披露。<br><br> | 来源：<code>https://zh-nan-tong-wang.com.cn
+</code></p><br><br><h3>券商研究所扎堆调研车载芯片龙头，车规级认证进度超预期</h3><br><p>拓普集团护城河分析：汽车零部件平台型企业的长期价值。<br><br> | 来源：<code>https://zh-ntr.com.cn
+</code></p><br><br><h3>首套房贷款利率动态调整，核心城市刚需购房成本创新低</h3><br><p>外资资管连续加仓跨境支付标的，近3月持仓占比提升至6%。<br><br> | 来源：<code>https://zh-panjinlian.com.cn
+</code></p><br><br><h3>科达利结构件精密制造：锂电池结构件龙头的全球份额</h3><br><p>卓胜微射频芯片积累：消费电子赛道的国产替代机会。<br><br> | 来源：<code>https://zh-pipi-yingyuan.com.cn
+</code></p><br><br><h3>黄山暑期游客量突破250万人次，山岳景区预约制度优化体验</h3><br><p>苏州马拉松开跑，3万跑者体验江南赛道赛事口碑持续提升。<br><br> | 来源：<code>https://zh-pipiyingyuan.com.cn
+</code></p><br><br><h3>全国煤化工行业低碳改造完成，碳排放强度下降20%</h3><br><p>公募基金集中调研智慧交通标的，车路协同项目落地节奏。<br><br> | 来源：<code>https://zh-pochu.com.cn
+</code></p><br><br><h3>重庆路桥异动拉升2.4%，区域路桥业务盈利稳定</h3><br><p>机构席位大额买入四川路桥1.3亿，区域基建龙头获长线布局。<br><br> | 来源：<code>https://zh-quanluo.com.cn
+</code></p><br><br><h3>湖南投资涨超2.1%，长沙路桥业务持续向好</h3><br><p>降准释放资金补充银行流动性，信贷投放能力显著提升。<br><br> | 来源：<code>https://zh-rujiao.com.cn
+</code></p><br><br><h3>全国社会体育指导员超300万人，指导群众科学健身</h3><br><p>国内大模型企业估值破万亿，30家企业跻身独角兽行列。<br><br> | 来源：<code>https://zh-sanjipian.com.cn
+</code></p><br><br><h3>全国氢能产业示范城市群落地，燃料电池汽车推广超12万辆</h3><br><p>国家版本馆全部建成开放，典藏中华文脉珍贵资源。<br><br> | 来源：<code>https://zh-saohuo.com.cn
