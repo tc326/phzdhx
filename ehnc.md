@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时23分09秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>头部券商调研固态电池标的，下一代技术落地时间表曝光</h3><br><p>大金重工塔筒出口翻倍，单季业绩预告超预期。<br><br> | 来源：<code>www.zhuweiguoji.cn
+</code></p><br><br><h3>地方国资战略入股汽车轻量化标的，助力一体化压铸产能释放</h3><br><p>醋产品价格上调6%，食醋板块盈利改善。<br><br> | 来源：<code>www.yuzt.cn
+</code></p><br><br><h3>医美行业合规化政策，头部医美标的拉升</h3><br><p>外资机构集中调研存储芯片龙头，海外订单情况成焦点。<br><br> | 来源：<code>www.dg-hhjx.cn
+</code></p><br><br><h3>存储芯片价格连续上涨12%，存储板块迎来趋势性行情</h3><br><p>家电出口超预期：白电、厨电的海外市场增量空间。<br><br> | 来源：<code>www.6gt8.cn
+</code></p><br><br><h3>全球储能市场规模突破500GWh，新型电力系统建设提速</h3><br><p>硅锰价格单月上涨9%，铁合金板块盈利改善。<br><br> | 来源：<code>www.gzsyd.cn
+</code></p><br><br><h3>钾肥价格连续上涨10%，钾肥板块盈利弹性释放</h3><br><p>鸡肉价格单月上涨15%，白羽鸡板块盈利弹性释放。<br><br> | 来源：<code>www.xinyucai.cn
+</code></p><br><br><h3>邮轮旅游市场重启，上半年国际邮轮订单同比增长300%</h3><br><p>化肥价格集体上涨，农资板块迎来产品涨价催化。<br><br> | 来源：<code>www.edubee.cn
+</code></p><br><br><h3>保险资管连续增持AI安防龙头，海外订单高增获机构认可</h3><br><p>国内大模型国际标准制定话语权提升，主导十余项国际标准。<br><br> | 来源：<code>www.rlgps.cn
+</code></p><br><br><h3>保险资管扎堆调研航空发动机标的，量产交付进度引关注</h3><br><p>乳制品价格小幅上调，乳业龙头盈利边际改善。<br><br> | 来源：<code>www.tlgsb.cn
+</code></p><br><br><h3>国内AI算力网络国家枢纽节点全部建成，实现算力全国调度</h3><br><p>中国建筑基建龙头优势：国内建筑行业的订单与规模优势。<br><br> | 来源：<code>www.btnrl.com
+</code></p><br><br><h3>天顺风能风电塔架布局：风电零部件龙头的全球份额</h3><br><p>百亿私募组团调研6G通信企业，技术试验进度超市场预期。<br><br> | 来源：<code>www.le-service-divin.com
+</code></p><br><br><h3>养老金新进虚拟电厂标的，首次布局电力信息化赛道</h3><br><p>海天味业涨超3.5%，调味品行业需求复苏。<br><br> | 来源：<code>www.zzwtest.com
+</code></p><br><br><h3>德国工业产出环比增长1.2%，制造业显现复苏迹象</h3><br><p>5年期LPR下调带动房企开发贷利率下行，房企盈利改善。<br><br> | 来源：<code>www.cztxwl.cn
+</code></p><br><br><h3>食品质量安全监管优化，头部食品标的拉升</h3><br><p>保障性住房建设规划，保障房产业链集体上涨。<br><br> | 来源：<code>www.zzlxgg.com.cn
+</code></p><br><br><h3>全国绿色供应链示范企业超千家，带动上下游产业低碳转型</h3><br><p>糖果产品价格上调6%，休闲食品全产业链景气回升。<br><br> | 来源：<code>www.archicourse.cn
+</code></p><br><br><h3>大秦铁路异动拉升2.8%，煤炭运输量稳步提升</h3><br><p>国产都市剧收视领跑，聚焦当代年轻人生活引发广泛讨论。<br><br> | 来源：<code>www.geeksuper.cn
+</code></p><br><br><h3>全国心理健康服务体系覆盖所有高校，心理疏导惠及千万学生</h3><br><p>中国国际跳棋队世锦赛夺冠，新兴智力运动实现突破。<br><br> | 来源：<code>www.husini.cn
+</code></p><br><br><h3>张家界玻璃桥暑期单日客流破3万，网红高空项目持续走红</h3><br><p>AI翻译工具支持百种语言实时互译，准确率超专业译员。<br><br> | 来源：<code>www.ousche.cn
+</code></p><br><br><h3>功率半导体价格上调6%，IGBT板块迎来涨价催化</h3><br><p>国内邮轮市场重启，首艘国产大型邮轮首航票售罄。<br><br> | 来源：<code>www.cnjinrong.cn
+</code></p><br><br><h3>大运河国家文化公园全面建成，沿线文旅融合项目超千个</h3><br><p>降准资金定向支持绿色能源，光伏风电板块获流动性利好。<br><br> | 来源：<code>www.edu633.cn
