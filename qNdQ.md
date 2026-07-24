@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时08分16秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>国内AI生成内容监管细则落地，AIGC内容标注要求全面实施</h3><br><p>隆平高科涨超4.4%，转基因商业化推进加速。<br><br> | 来源：<code>https://new-moguyingshi.com.cn
+</code></p><br><br><h3>头部机构组团到访创新药龙头，核心管线临床三期数据披露</h3><br><p>国电南瑞电网自动化高增，单季业绩预告超预期。<br><br> | 来源：<code>https://new-muguashipin.com.cn
+</code></p><br><br><h3>沪股通席位单日买入美的集团2.1亿，家电龙头获外资增持</h3><br><p>美联储第三次降息落地，全球风险偏好显著提升。<br><br> | 来源：<code>https://new-nantongwang.com.cn
+</code></p><br><br><h3>上半年全国显示面板出口同比增长21%，电子产业优势巩固</h3><br><p>市场情绪疯狂时要冷静，情绪低迷时要保持信心。<br><br> | 来源：<code>https://new-nencaoyingyuan.com.cn
+</code></p><br><br><h3>多地景区推出免票政策，国有A级景区免票覆盖超300家</h3><br><p>京沪高铁涨超2.9%，暑运客流数据超预期。<br><br> | 来源：<code>https://new-pipiyingyuan.com.cn
+</code></p><br><br><h3>北向资金连续加仓保利发展，央企地产获外资持续布局</h3><br><p>铅价上涨7%，铅酸电池板块盈利边际改善。<br><br> | 来源：<code>https://new-sky-sports.com.cn
+</code></p><br><br><h3>香港高校内地招生扩容500名额，新增大湾区相关特色专业</h3><br><p>功率半导体价格上调6%，IGBT板块迎来涨价催化。<br><br> | 来源：<code>https://new-tangxin.com.cn
+</code></p><br><br><h3>量子计算原型机新突破，量子科技板块集体拉升</h3><br><p>体育产业消费刺激政策，体育消费标的全线异动。<br><br> | 来源：<code>https://new-tiantiandongman.com.cn
+</code></p><br><br><h3>超250家机构到访AI大模型企业，ToB付费转化率超预期</h3><br><p>储能温控龙头开启新股申购，海外客户覆盖全球头部厂商。<br><br> | 来源：<code>https://new-wang.com.cn
+</code></p><br><br><h3>恒瑞医药创新药管线：国内创新药龙头的研发投入回报</h3><br><p>百亿私募组团调研碳化硅企业，车规级器件量产线投产。<br><br> | 来源：<code>https://new-wuyeyingyuan.com.cn
+</code></p><br><br><h3>巴西经济复苏，二季度农业工业双增长</h3><br><p>QFII大幅加仓预制菜龙头，B端渠道扩张获海外机构看好。<br><br> | 来源：<code>https://new-xiangjiaoshipin.com.cn
+</code></p><br><br><h3>中国男子击剑队世锦赛团体夺冠，重回世界顶尖行列</h3><br><p>国内AI生成内容监管细则落地，AIGC内容标注要求全面实施。<br><br> | 来源：<code>https://new-xingfubao.cn
+</code></p><br><br><h3>洽洽食品涨超3.4%，坚果业务收入增速回升</h3><br><p>美联储连续第二次降息，北向资金单日净流入超百亿。<br><br> | 来源：<code>https://new-xingkong-ent.com.cn
+</code></p><br><br><h3>荣盛石化新材料业务拓展：炼化企业的第二增长曲线</h3><br><p>鸡蛋价格季节性上涨10%，蛋鸡养殖板块盈利改善。<br><br> | 来源：<code>https://new-xingkongyingshi.com.cn
+</code></p><br><br><h3>宁德时代突破关键压力位，后续上涨空间与支撑位一览</h3><br><p>贵州茅台前三季度营收破千亿，业绩预告超预期。<br><br> | 来源：<code>https://new-xiuxiushipin.com.cn
+</code></p><br><br><h3>宁德时代异动拉升6.2%，海外储能项目持续落地</h3><br><p>钯价连续上涨9%，汽车尾气催化板块盈利改善。<br><br> | 来源：<code>https://new-yazhoujingpin.com.cn
+</code></p><br><br><h3>紫金矿业铜金产量超预期，前三季度业绩预增80%</h3><br><p>养老金新进虚拟电厂标的，首次布局电力信息化赛道。<br><br> | 来源：<code>https://new-yazhouwuma.com.cn
+</code></p><br><br><h3>调味品开启集体涨价，食品板块盈利迎来修复</h3><br><p>氢能燃料电池龙头登陆创业板，商用车推广订单同比大增。<br><br> | 来源：<code>https://new-yazhouzaixian.com.cn
+</code></p><br><br><h3>国内低空文旅项目升温，热气球、滑翔伞体验订单同比暴涨</h3><br><p>外资资管集中调研跨境电商龙头，出口增速数据首次公开。<br><br> | 来源：<code>https://new-yeyelu.cn
+</code></p><br><br><h3>全国体育产业总规模上半年突破3.5万亿元，占GDP比重提升</h3><br><p>中际旭创光模块技术：数通光模块全球龙头的份额逻辑。<br><br> | 来源：<code>https://new-yinghuashipin.com.cn
