@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时07分00秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>社保基金新进重仓股，社保持仓标的集体异动</h3><br><p>贵州建工异动拉升3.1%，区域基建业务高增。<br><br> | 来源：<code>https://nencaowang.com.cn
+</code></p><br><br><h3>百亿私募组团调研生物育种标的，玉米种子推广面积超预期</h3><br><p>中国船舶造船订单交付，前三季度业绩预增超120%。<br><br> | 来源：<code>https://new-19-sports.com.cn
+</code></p><br><br><h3>社保基金新进智慧矿山龙头，布局煤矿智能化改造赛道</h3><br><p>海南自贸港封关运作准备全面就绪，政策红利加速释放。<br><br> | 来源：<code>https://new-850-official.com
+</code></p><br><br><h3>工业金属集体上涨，有色板块迎来全面行情催化</h3><br><p>中国平安综合金融版图：保险龙头的转型进展与空间。<br><br> | 来源：<code>https://new-8x8.com.cn
+</code></p><br><br><h3>箱板纸价格上涨5%，包装产业链盈利改善</h3><br><p>中超联赛第20轮，上海申花6-0大胜对手稳居积分榜榜首。<br><br> | 来源：<code>https://new-9191.com.cn
+</code></p><br><br><h3>大股东耗资3.8亿增持钙钛矿设备标的，助力核心设备研发</h3><br><p>机构资金集中买入海大集团6300万，饲料龙头获机构抱团。<br><br> | 来源：<code>https://new-91cc.com.cn
+</code></p><br><br><h3>光伏N型电池设备标的登陆科创板，TOPCon设备市占率超60%</h3><br><p>公募基金集中调研储能温控龙头，海外客户拓展引关注。<br><br> | 来源：<code>https://new-91cn.com.cn
+</code></p><br><br><h3>全国文化产业园区超3000家，集聚效应带动创意产业发展</h3><br><p>全国城市餐厨垃圾处理能力突破10万吨/日，资源化利用。<br><br> | 来源：<code>https://new-91com.com.cn
+</code></p><br><br><h3>美联储降息周期开启，黄金珠宝板块迎来趋势性行情</h3><br><p>全球半导体产业周期复苏，销售额同比增长18%创历史新高。<br><br> | 来源：<code>https://new-91dongman.com.cn
+</code></p><br><br><h3>中国垒球队获得亚运会银牌，项目普及度快速提升</h3><br><p>中国台球选手世锦赛夺冠，斯诺克运动中国力量持续崛起。<br><br> | 来源：<code>https://new-91mianfei.com.cn
+</code></p><br><br><h3>全国农产品网络零售额上半年突破3500亿元，助力乡村振兴</h3><br><p>全国连锁品牌门店数量上半年同比增长12%，线下消费复苏。<br><br> | 来源：<code>https://new-91n.com.cn
+</code></p><br><br><h3>全国农业面源污染治理成效显著，化肥使用量连续11年下降</h3><br><p>北向资金大额扫货万华化学1.3亿，化工龙头获外资流入。<br><br> | 来源：<code>https://new-91ncom.com.cn
+</code></p><br><br><h3>外资持续流入中际旭创，光模块龙头外资持仓占比突破6%</h3><br><p>中国象棋队世锦赛全部夺冠，传统棋类运动长盛不衰。<br><br> | 来源：<code>https://new-91tv.com.cn
+</code></p><br><br><h3>天齐锂业锂矿资源储备：全球锂矿龙头的资源禀赋优势</h3><br><p>大北农种业布局：转基因商业化下的种业龙头成长逻辑。<br><br> | 来源：<code>https://new-91yingshi.com.cn
+</code></p><br><br><h3>谷爱凌复出参加世锦赛，斩获自由式滑雪U型场地金牌</h3><br><p>海缆价格上调5%，海缆龙头订单盈利弹性提升。<br><br> | 来源：<code>https://new-aifengyue.com.cn
+</code></p><br><br><h3>暑期档电影票房突破200亿元，国产主旋律影片领跑市场</h3><br><p>宠物食品企业开启新股申购，海外自主品牌占比突破40%。<br><br> | 来源：<code>https://new-aiye.net.cn
+</code></p><br><br><h3>美的集团海外收入高增，前三季度业绩预增超25%</h3><br><p>恒瑞医药创新药管线：研发投入进入收获期的业绩展望。<br><br> | 来源：<code>https://new-aqd.org.cn
+</code></p><br><br><h3>存款利率连续下调，居民配置权益资产意愿持续增强</h3><br><p>中兴通讯算力业务爆发，单季净利润同比增80%。<br><br> | 来源：<code>https://new-aqdlt.org.cn
+</code></p><br><br><h3>充电桩下乡政策落地，充电桩产业链标的走强</h3><br><p>保险资管举牌机器人减速器标的，核心零部件获机构重仓。<br><br> | 来源：<code>https://new-baicai-web.com
+</code></p><br><br><h3>北向资金大额扫货紫金矿业3.5亿，黄金龙头获外资持续流入</h3><br><p>通威股份硅料产能优势：低成本产能释放下的行业格局。<br><br> | 来源：<code>https://new-baihe.com.cn
