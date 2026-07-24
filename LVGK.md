@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时07分08秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>东方电气风电设备技术：国内能源装备龙头的多赛道布局</h3><br><p>低空经济龙头登陆创业板，eVTOL适航认证进度成核心看点。<br><br> | 来源：<code>https://cn-jb-tiyu-web.com.cn
+</code></p><br><br><h3>定向降息支持绿色电力，绿电运营板块获定向利好</h3><br><p>北向资金连续加仓东方财富，互联网券商获外资持续流入。<br><br> | 来源：<code>https://cn-jiabosports.com.cn
+</code></p><br><br><h3>知名私募大手笔增持数字人民币标的，持仓占比突破3%</h3><br><p>新希望异动拉升3.9%，生猪出栏量持续高增。<br><br> | 来源：<code>https://cn-kaiyun-esports.com.cn
+</code></p><br><br><h3>北向资金单日买入隆平高科5900万，种业龙头获外资流入</h3><br><p>硅锰价格单月上涨9%，铁合金板块盈利改善。<br><br> | 来源：<code>https://cn-ls-tiyu.com.cn
+</code></p><br><br><h3>北京马拉松参赛人数突破3万，全球顶级赛事影响力持续扩大</h3><br><p>公募基金集中调研IDC龙头，AI算力上架率创历史新高。<br><br> | 来源：<code>https://cn-ob-tiyu.com.cn
+</code></p><br><br><h3>全国职业体育俱乐部数量超2000家，联赛体系覆盖全项目</h3><br><p>中国西电异动拉升3.6%，输配电设备集团整合加速。<br><br> | 来源：<code>https://cn-pb-tiyu.com.cn
+</code></p><br><br><h3>央行表态加大逆周期调节，后续仍有降准降息空间</h3><br><p>企业贷款利率创历史新低，制造业投资意愿有望回升。<br><br> | 来源：<code>https://cn-pipi-yingyuan.com.cn
+</code></p><br><br><h3>超170家机构到访PCB龙头，AI服务器板订单同比翻倍</h3><br><p>芬兰经济走出衰退，绿色技术产业拉动复苏。<br><br> | 来源：<code>https://cn-pipiyingyuan.com.cn
+</code></p><br><br><h3>机构资金联手买入东方电气6200万，能源装备龙头获抱团</h3><br><p>体育旅游市场爆发，上半年马拉松赛事带动旅游消费超百亿。<br><br> | 来源：<code>https://cn-qingyule.com.cn
+</code></p><br><br><h3>上海推出“夜生活节”，夜间商户营业额同比增长60%</h3><br><p>全国演出市场线下消费人次破亿，周边产品营收占比提升。<br><br> | 来源：<code>https://cn-qiusu-vip.com.cn
+</code></p><br><br><h3>国产儿童动画全网播放量突破250亿，陪伴新一代青少年成长</h3><br><p>中国男子射击队世锦赛斩获6金，奥运席位全部拿满。<br><br> | 来源：<code>https://cn-qy-tiyu.com.cn
+</code></p><br><br><h3>量子信息产业规划发布，量子通信标的全线拉升</h3><br><p>江特电机锂矿资源优势：云母提锂龙头的盈利弹性解析。<br><br> | 来源：<code>https://cn-wd-tiyu.com.cn
+</code></p><br><br><h3>沪股通席位单日买入中国平安4亿，大金融龙头获外资增持</h3><br><p>容百科技放量拉升5.5%，高镍正极渗透率持续提升。<br><br> | 来源：<code>https://cn-worldcup-huodong.com
+</code></p><br><br><h3>超280家机构到访工业母机龙头，五轴机床量产进度超预期</h3><br><p>国内民宿市场规模破万亿，精品民宿均价同比上涨20%。<br><br> | 来源：<code>https://cn-worldcup-peilv.com
+</code></p><br><br><h3>全国汽车拉力赛超20站，赛车运动爱好者规模破百万</h3><br><p>海尔智家高端化布局：白电龙头的品牌溢价能力。<br><br> | 来源：<code>https://cn-worldcup-score-rate.com
+</code></p><br><br><h3>保险资管连续增持酒店连锁龙头，消费复苏获机构长期配置</h3><br><p>地产链政策宽松预期：房企、家居、建材的轮动机会梳理。<br><br> | 来源：<code>https://cn-worldcup-xiazhu.com
+</code></p><br><br><h3>大北农种业布局：转基因商业化下的种业龙头成长逻辑</h3><br><p>海康威视AI转型进展：传统安防龙头的第二成长曲线。<br><br> | 来源：<code>https://cn-xiuxiushipin.com.cn
+</code></p><br><br><h3>海缆价格上调5%，海缆龙头订单盈利弹性提升</h3><br><p>海尔智家异动拉升4.2%，卡萨帝高端品牌增速亮眼。<br><br> | 来源：<code>https://cn-yamei-sports.com.cn
+</code></p><br><br><h3>5年期LPR下调带动地产链估值修复，家居家电板块集体上涨</h3><br><p>AI图像识别技术突破，缺陷检测准确率超99.5%。<br><br> | 来源：<code>https://cn-yinghuashipin.com.cn
+</code></p><br><br><h3>全球债务规模突破320万亿美元，新兴市场债务风险可控</h3><br><p>知名私募大手笔增持数字人民币标的，持仓占比突破3%。<br><br> | 来源：<code>https://cn91.com.cn
