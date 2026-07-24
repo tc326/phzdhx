@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时08分11秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>中印经贸合作回暖，双边贸易额同比增长15%</h3><br><p>正泰电器放量上涨3.7%，户用光伏装机量领先。<br><br> | 来源：<code>https://daohanglanse.com.cn
+</code></p><br><br><h3>智慧矿山标的登陆北交所，煤矿智能化改造订单同比翻倍</h3><br><p>全国碳排放强度同比下降4.2%，提前完成"十四五"减排目标。<br><br> | 来源：<code>https://daohangse.com.cn
+</code></p><br><br><h3>外资机构集中调研短视频出海标的，海外用户规模破亿</h3><br><p>中国电竞战队斩获英雄联盟S14全球总决赛冠军。<br><br> | 来源：<code>https://daohangxiao.com.cn
+</code></p><br><br><h3>低空旅游市场爆发，上半年直升机观光订单同比增长200%</h3><br><p>头部券商到访酒店连锁龙头，RevPAR恢复至2019年120%。<br><br> | 来源：<code>https://daohangye.com.cn
+</code></p><br><br><h3>社保基金新进生物育种标的，布局农业科技长期成长</h3><br><p>安防大模型落地全国，异常事件识别响应速度提升至毫秒级。<br><br> | 来源：<code>https://daohangyese.com.cn
+</code></p><br><br><h3>全国博物馆暑期接待人次破2亿，研学游订单同比翻倍</h3><br><p>西藏暑期游客量突破200万人次，高原旅游热度创新高。<br><br> | 来源：<code>https://daohangyinse.com.cn
+</code></p><br><br><h3>招商公路平台化布局：全国公路网络的整合成长逻辑</h3><br><p>特变电工新能源多赛道布局：从输变电到新能源的转型。<br><br> | 来源：<code>https://daoyiben.com.cn
+</code></p><br><br><h3>全国农业面源污染治理成效显著，化肥使用量连续11年下降</h3><br><p>锂电铝箔价格上调5%，铝箔上市公司盈利弹性释放。<br><br> | 来源：<code>https://dapianoumei.com.cn
+</code></p><br><br><h3>暑期托管服务全面推行，免费提供兴趣课程和作业辅导</h3><br><p>多地出台支持民营经济新政，破除市场准入隐性壁垒。<br><br> | 来源：<code>https://dapigu-shipin.com.cn
+</code></p><br><br><h3>产业资本集中增持元宇宙内容龙头，布局线下体验店扩张</h3><br><p>社保基金新进生物育种标的，布局农业科技长期成长。<br><br> | 来源：<code>https://dapigu.com.cn
+</code></p><br><br><h3>阳光电源涨超7%，逆变器海外订单持续超预期</h3><br><p>恩捷股份异动拉升5.4%，锂电池隔膜份额持续提升。<br><br> | 来源：<code>https://dayanghei.com.cn
+</code></p><br><br><h3>美欧贸易谈判达成协议，解决钢铁铝关税争端</h3><br><p>中芯国际放量突破平台，短线多头力量持续增强。<br><br> | 来源：<code>https://dianfeng-guoji.com.cn
+</code></p><br><br><h3>保险资管扎堆调研汽车芯片标的，MCU芯片国产替代率突破50%</h3><br><p>中国平安寿险新业务价值大增，业绩预告超预期。<br><br> | 来源：<code>https://dianying-zaixianguankanmianfei.com.cn
+</code></p><br><br><h3>外资机构集中调研种业龙头，转基因商业化落地节奏披露</h3><br><p>原油价格突破85美元/桶，油气开采板块盈利提升。<br><br> | 来源：<code>https://dianyingcang.com.cn
+</code></p><br><br><h3>机构席位大额买入德业股份5300万，储能龙头获长线布局</h3><br><p>工业金属集体上涨，有色板块迎来全面行情催化。<br><br> | 来源：<code>https://dingsheng-5262-web.com
+</code></p><br><br><h3>三亚暑期酒店入住率超98%，高端度假产品订单暴涨</h3><br><p>游戏大模型落地，AI实时生成游戏场景大幅降低开发成本。<br><br> | 来源：<code>https://diyiban-zhu.cn
+</code></p><br><br><h3>降准释放资金定向支持基建，基建板块迎来流动性利好</h3><br><p>北向资金连续增持核电设备龙头，近1月持仓增幅超25%。<br><br> | 来源：<code>https://diyici-derenqi.com.cn
+</code></p><br><br><h3>中国男篮重返奥运会八强，世界排名提升至第12位</h3><br><p>三一重工全球化布局：工程机械龙头的第二增长曲线。<br><br> | 来源：<code>https://diyiciderenqi.com.cn
+</code></p><br><br><h3>中国轮滑队世锦赛包揽全部金牌，优势项目持续领跑世界</h3><br><p>中国男子射击队世锦赛斩获6金，奥运席位全部拿满。<br><br> | 来源：<code>https://diyiciderenqidongman.com.cn
+</code></p><br><br><h3>海外对冲基金组团调研白酒区域龙头，省外扩张增速曝光</h3><br><p>三星堆新出土文物超千件，古蜀文明研究取得重大突破。<br><br> | 来源：<code>https://diyicirenqi.com.cn
