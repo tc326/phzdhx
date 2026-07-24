@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时23分23秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>中际旭创再创阶段新高，趋势加速下的持仓策略</h3><br><p>5年期以上LPR大幅下调20BP，地产链板块全线异动。<br><br> | 来源：<code>www.ym5184.com
+</code></p><br><br><h3>许继电气特高压订单落地，单季业绩预告超预期</h3><br><p>璞泰来负极材料盈利改善，前三季度业绩预增超40%。<br><br> | 来源：<code>www.lvyuepai.com
+</code></p><br><br><h3>AI音乐生成工具普及，原创音乐产出效率提升10倍</h3><br><p>汉缆股份输配电布局：国内电缆行业的龙头成长路径。<br><br> | 来源：<code>www.youngstrong.cn
+</code></p><br><br><h3>华为盘古大模型行业落地，工业AI板块持续升温</h3><br><p>外资机构席位净买入双汇发展6400万，肉制品龙头获加仓。<br><br> | 来源：<code>www.41yvs.cn
+</code></p><br><br><h3>海康威视AI业务高增，单季净利润同比增45%</h3><br><p>北向资金连续加仓海康威视，AI安防龙头获外资持续布局。<br><br> | 来源：<code>www.hospitalcdm.cn
+</code></p><br><br><h3>特变电工新能源盈利高增，单季业绩预告超预期</h3><br><p>固德威户用储能布局：储能赛道细分龙头的成长路径。<br><br> | 来源：<code>www.mayilt.cn
+</code></p><br><br><h3>大模型在文创领域应用，AI生成剧本、音乐成行业常态</h3><br><p>青岛国际啤酒节开幕，首日吸引客流超30万营收破亿。<br><br> | 来源：<code>www.ebtea.cn
+</code></p><br><br><h3>全球智能家居市场规模突破1万亿美元，智慧家庭普及</h3><br><p>紫光国微特种芯片优势：军工电子赛道的隐形冠军解析。<br><br> | 来源：<code>www.seodoc.cn
+</code></p><br><br><h3>产业资本集中增持锂电铜箔龙头，极薄铜箔技术获资本布局</h3><br><p>头部券商到访调味品龙头，渠道库存去化周期数据披露。<br><br> | 来源：<code>www.skillrace.cn
+</code></p><br><br><h3>美联储降息25BP符合市场预期，全球股市迎来普涨行情</h3><br><p>海康威视AI转型：从安防龙头到AIoT巨头的成长路径。<br><br> | 来源：<code>www.bibistar.cn
+</code></p><br><br><h3>硅锰价格单月上涨9%，铁合金板块盈利改善</h3><br><p>MLCC价格单月上涨5%，电容龙头盈利弹性释放。<br><br> | 来源：<code>www.jingnews.cn
+</code></p><br><br><h3>上半年全国光伏组件出口同比增长28%，全球市场份额超92%</h3><br><p>全球区块链产业规模突破万亿美元，Web3.0应用落地加速。<br><br> | 来源：<code>www.hrnhug.cn
+</code></p><br><br><h3>沪深交易所降费，券商经纪业务标的集体上涨</h3><br><p>功率半导体价格上调6%，IGBT板块迎来涨价催化。<br><br> | 来源：<code>www.cqxsx.cn
+</code></p><br><br><h3>医疗大模型通过三类医疗器械认证，辅助诊断准确率超98%</h3><br><p>工业大模型落地万座工厂，生产效率平均提升30%。<br><br> | 来源：<code>www.gmsz.cn
+</code></p><br><br><h3>超240家机构到访氢能燃料电池标的，商用车推广数据公开</h3><br><p>圣邦股份模拟芯片布局：国产模拟芯片龙头的成长路径。<br><br> | 来源：<code>0315etu.com
+</code></p><br><br><h3>外资机构席位净买入中国交建5700万，基建龙头获外资加仓</h3><br><p>许继电气特高压订单落地，单季业绩预告超预期。<br><br> | 来源：<code>streamnet-chain.com
+</code></p><br><br><h3>西安马拉松开跑，穿越古城墙赛道吸引超3万跑者参与</h3><br><p>数字人民币核心标的启动申购，线下场景覆盖突破亿级用户。<br><br> | 来源：<code>mmdez.com
+</code></p><br><br><h3>苏州园林暑期接待人次破500万，江南古典文旅持续走红</h3><br><p>保险资管举牌机器人减速器标的，核心零部件获机构重仓。<br><br> | 来源：<code>linjincheng.cn
+</code></p><br><br><h3>全国医院预约挂号覆盖率达100%，平均就诊时间缩短至1小时内</h3><br><p>美国通胀回落至2.5%，为后续进一步降息打开空间。<br><br> | 来源：<code>51jieyan.cn
+</code></p><br><br><h3>大模型开源社区活跃，国产开源大模型数量破300款</h3><br><p>全球新能源投资突破2万亿美元，中国占比超40%。<br><br> | 来源：<code>0357linfen.cn
