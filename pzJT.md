@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时06分51秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>嫦娥探月工程新任务，航天科技产业链迎来催化</h3><br><p>普惠小微贷款利率进一步下行，中小微企业盈利改善。<br><br> | 来源：<code>https://web-ld-tiyu.com.cn
+</code></p><br><br><h3>电解铝价格突破2万元/吨，铝业上市公司盈利弹性释放</h3><br><p>大模型在气象领域应用，天气预报准确率提升15%。<br><br> | 来源：<code>https://web-mitao.com.cn
+</code></p><br><br><h3>全球人口突破81亿，人口结构变化重塑经济格局</h3><br><p>泸州老窖国窖批价上行，单季业绩预告超预期。<br><br> | 来源：<code>https://web-mitaoshipin.com.cn
+</code></p><br><br><h3>中国女子足球闯入世界杯四强，创造历史最佳战绩</h3><br><p>阳光电源海外逆变器爆发，前三季度业绩预增110%。<br><br> | 来源：<code>https://web-mogushipin.com.cn
+</code></p><br><br><h3>光伏组件出口创历史新高，光伏海外链标的走强</h3><br><p>全国臭氧浓度同比下降5%，夏季蓝天数量明显增加。<br><br> | 来源：<code>https://web-qianyi-sports.com.cn
+</code></p><br><br><h3>江淮汽车与华为合作：传统车企与科技巨头的协同价值</h3><br><p>全面降准0.5个百分点，银行信贷投放能力大幅提升。<br><br> | 来源：<code>https://web-qs-tiyu.com.cn
+</code></p><br><br><h3>牧原股份养殖成本控制：生猪养殖龙头的核心竞争力</h3><br><p>中国皮划艇队世锦赛斩获3金，静水项目优势持续扩大。<br><br> | 来源：<code>https://web-tk-sports.com.cn
+</code></p><br><br><h3>上半年全国智能手机出货量同比增长7%，国产品牌占比提升</h3><br><p>全国校园足球特色校破2万，青少年足球人才储备加厚。<br><br> | 来源：<code>https://web-ym-tiyu.com.cn
+</code></p><br><br><h3>外资准入政策放宽，外资偏好标的全线拉升</h3><br><p>赣粤高速涨超2.3%，江西区域车流量稳步提升。<br><br> | 来源：<code>https://web-yy-tiyu.com.cn
+</code></p><br><br><h3>铂价上涨10%，燃料电池催化剂板块迎来涨价催化</h3><br><p>武汉水上马拉松开跑，千名泳者畅游长江挑战自我。<br><br> | 来源：<code>https://web-zunlong-sports.com.cn
+</code></p><br><br><h3>农业机械化推广政策，农机装备板块全线异动</h3><br><p>游资知名席位联手买入登海种业5600万，种业标的获追捧。<br><br> | 来源：<code>https://wending-ent-web.com.cn
+</code></p><br><br><h3>中国通号高铁信号技术：全球轨交信号系统龙头的壁垒</h3><br><p>外资单日大额买入宁德时代25亿，动力电池龙头获持续流入。<br><br> | 来源：<code>https://wepoker-official-ios.com
+</code></p><br><br><h3>亚太经合组织峰会召开，达成数字经济合作框架</h3><br><p>家电出口超预期：白电、厨电的海外市场增量空间。<br><br> | 来源：<code>https://white-tiger.com.cn
+</code></p><br><br><h3>全国美术馆年展览超2万场，艺术惠民覆盖千万群众</h3><br><p>小米汽车交付量超预期，小米汽车产业链全线爆发。<br><br> | 来源：<code>https://worias.cn
+</code></p><br><br><h3>云南建投放量上涨3.4%，南亚基建订单落地加速</h3><br><p>镁价单月上涨18%，镁合金板块迎来产品涨价行情。<br><br> | 来源：<code>https://worldcup-bifen-odds.com
+</code></p><br><br><h3>地方国资战略入股氢能燃料电池标的，助力商用车推广落地</h3><br><p>企业债券融资利率大幅下行，直接融资占比进一步提升。<br><br> | 来源：<code>https://worldcup-caishengfu-web.com
+</code></p><br><br><h3>百亿私募组团调研固态电解质企业，实验室数据突破行业阈值</h3><br><p>中国田径世锦赛斩获5金，男子百米接力打破亚洲纪录。<br><br> | 来源：<code>https://worldcup-jingcai-entry.com
+</code></p><br><br><h3>超160家机构到访锂电回收龙头，回收处理产能利用率超90%</h3><br><p>核聚变实验装置获重大进展，可控核聚变标的异动。<br><br> | 来源：<code>https://worldcup-jingcai-event.com
+</code></p><br><br><h3>医疗器械创新绿色通道，创新器械板块异动</h3><br><p>全国居民人均可支配收入同比增长6.2%，跑赢GDP增速。<br><br> | 来源：<code>https://worldcup-jingcai-platform.com
+</code></p><br><br><h3>全国城市马拉松赛事数量突破1500场，覆盖所有省份</h3><br><p>外资机构集中调研跨境支付标的，海外结算规模环比大增。<br><br> | 来源：<code>https://worldcup-peifulv-top.com
