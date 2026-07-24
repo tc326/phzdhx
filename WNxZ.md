@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时06分56秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>超150家机构到访工业机器人标的，产能利用率突破90%</h3><br><p>全球绿色建筑市场规模突破3万亿美元，低碳建筑普及。<br><br> | 来源：<code>https://danaizi.net.cn
+</code></p><br><br><h3>中国通号涨超3.4%，高铁信号系统份额领先</h3><br><p>MLCC价格单月上涨5%，电容龙头盈利弹性释放。<br><br> | 来源：<code>https://daohang-zh.com.cn
+</code></p><br><br><h3>首套房贷款利率动态调整，核心城市刚需购房成本创新低</h3><br><p>养老金现身创新器械标的，海外FDA获批进度超预期。<br><br> | 来源：<code>https://daohang91.cn
+</code></p><br><br><h3>汽车零部件赛道景气度上行：细分方向机会全梳理</h3><br><p>特变电工多晶硅布局：新能源全产业链的协同成长逻辑。<br><br> | 来源：<code>https://daohangfuli.cn
+</code></p><br><br><h3>锂电铜箔价格上涨4%，铜箔龙头盈利边际改善</h3><br><p>北向资金举牌工业机器人龙头，外资持仓创历史新高。<br><br> | 来源：<code>https://daohanglanse.com.cn
+</code></p><br><br><h3>AI生成广告内容占比超70%，营销行业效率大幅提升</h3><br><p>银保监会出台新政，进一步降低实体经济融资成本。<br><br> | 来源：<code>https://daohangse.com.cn
+</code></p><br><br><h3>全国青少年冰雪赛事覆盖南方城市，冰雪运动南展西扩</h3><br><p>箱板纸价格上涨5%，包装产业链盈利改善。<br><br> | 来源：<code>https://daohangxiao.com.cn
+</code></p><br><br><h3>全国滑板锦标赛举办，年轻选手展现街头运动活力</h3><br><p>紫金矿业全球资源布局：铜金龙头的长期产量增长逻辑。<br><br> | 来源：<code>https://daohangye.com.cn
+</code></p><br><br><h3>恩捷股份隔膜技术壁垒：锂电池隔膜全球龙头的份额优势</h3><br><p>深圳马拉松开跑，3万跑者穿越滨海赛道展现城市活力。<br><br> | 来源：<code>https://daohangyese.com.cn
+</code></p><br><br><h3>京东言犀大模型供应链版上线，助力电商降本增效</h3><br><p>中国通号涨超3.4%，高铁信号系统份额领先。<br><br> | 来源：<code>https://daohangyinse.com.cn
+</code></p><br><br><h3>锦浪科技海外渠道优势：分布式光伏的全球渠道网络壁垒</h3><br><p>低空经济龙头登陆创业板，eVTOL适航认证进度成核心看点。<br><br> | 来源：<code>https://daoyiben.com.cn
+</code></p><br><br><h3>全球生物医药市场规模突破1.8万亿美元，创新药研发加速</h3><br><p>牧原股份疫病防控能力：生猪养殖龙头的核心经营壁垒。<br><br> | 来源：<code>https://dapianoumei.com.cn
+</code></p><br><br><h3>海产品全产业链涨价，水产板块全面异动</h3><br><p>中国中车涨超3.3%，海外轨交订单持续落地。<br><br> | 来源：<code>https://dapigu-shipin.com.cn
+</code></p><br><br><h3>卓胜微放量拉升5.7%，射频芯片行业景气度回升</h3><br><p>通用航空机场建设规划，通航运营板块集体上涨。<br><br> | 来源：<code>https://dapigu.com.cn
+</code></p><br><br><h3>全国千岛湖水质保持Ⅰ类，成为重要饮用水源地标杆</h3><br><p>中印经贸合作回暖，双边贸易额同比增长15%。<br><br> | 来源：<code>https://dayanghei.com.cn
+</code></p><br><br><h3>浙江建投异动拉升4.7%，浙江共同富裕区基建加码</h3><br><p>全国博物馆总数突破6500家，年接待观众超12亿人次。<br><br> | 来源：<code>https://dianfeng-guoji.com.cn
+</code></p><br><br><h3>全国县域商业体系建设完成，农村消费市场潜力持续释放</h3><br><p>国产游戏上半年出海营收突破80亿美元，文化输出能力增强。<br><br> | 来源：<code>https://dianying-zaixianguankanmianfei.com.cn
+</code></p><br><br><h3>AI数字人主播全面普及，超千家电视台启用AI虚拟主持人</h3><br><p>电池片价格小幅上调3%，光伏产业链盈利分配优化。<br><br> | 来源：<code>https://dianyingcang.com.cn
+</code></p><br><br><h3>有机硅价格连续上涨10%，硅化工龙头盈利修复超预期</h3><br><p>海上风电深远海规划，深远海风电板块集体上涨。<br><br> | 来源：<code>https://dingsheng-5262-web.com
+</code></p><br><br><h3>贵州建工异动拉升3.1%，区域基建业务高增</h3><br><p>国足世预赛客场2-1逆转日本，创造历史首次客场击败对手。<br><br> | 来源：<code>https://diyiban-zhu.cn
