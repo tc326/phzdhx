@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时07分06秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>实控人兜底式增持AI大模型标的，员工参与规模超预期</h3><br><p>中国游泳队世锦赛斩获5金，打破2项世界纪录领跑泳坛。<br><br> | 来源：<code>https://17capcc.com.cn
+</code></p><br><br><h3>中国象棋队世锦赛全部夺冠，传统棋类运动长盛不衰</h3><br><p>西藏暑期游客量突破200万人次，高原旅游热度创新高。<br><br> | 来源：<code>https://17cccc.com.cn
+</code></p><br><br><h3>游资顶级席位打板梅花生物5200万，氨基酸标的获热炒</h3><br><p>全国绿证交易规模突破1亿个，覆盖超20个高耗能行业。<br><br> | 来源：<code>https://17ccchigua.com.cn
+</code></p><br><br><h3>润和软件鸿蒙生态布局：国产操作系统的商业化空间测算</h3><br><p>锂电铝箔价格上调5%，铝箔上市公司盈利弹性释放。<br><br> | 来源：<code>https://17cchigua.com.cn
+</code></p><br><br><h3>故宫博物院暑期门票秒空，日均接待游客突破8万人次</h3><br><p>贵州暑期游客量突破7000万人次，山地旅游品牌影响力扩大。<br><br> | 来源：<code>https://17ccom.com.cn
+</code></p><br><br><h3>中国电建异动拉升3.3%，新能源电站装机量高增</h3><br><p>海康威视企稳回升，AI安防赛道需求逐步回暖。<br><br> | 来源：<code>https://17ccomgithub.com.cn
+</code></p><br><br><h3>城市更新行动政策，城市更新板块走强</h3><br><p>北向资金举牌工业机器人龙头，外资持仓创历史新高。<br><br> | 来源：<code>https://17ccomrukou.com.cn
+</code></p><br><br><h3>全国城市建成区绿化覆盖率达42%，人均公园绿地面积15平方米</h3><br><p>北向资金连续加仓保利发展，央企地产获外资持续布局。<br><br> | 来源：<code>https://17ccomyiqicaozaixian.com.cn
+</code></p><br><br><h3>海尔智家异动拉升4.2%，卡萨帝高端品牌增速亮眼</h3><br><p>企业中长期贷款利率创历史新低，制造业资本开支回升。<br><br> | 来源：<code>https://17ccyiqicao.com.cn
+</code></p><br><br><h3>LPR非对称下调，银行净息差压力边际缓解</h3><br><p>极端高温天气来袭，电力运营板块集体拉升。<br><br> | 来源：<code>https://17cmeiridasai.com.cn
+</code></p><br><br><h3>葡萄牙经济增速达2.3%，旅游业持续拉动增长</h3><br><p>锂电铜箔价格上涨4%，铜箔龙头盈利边际改善。<br><br> | 来源：<code>https://17cmocqicaotangxinzaixiankan.com.cn
+</code></p><br><br><h3>集成电路税收减免政策延长，芯片全板块集体上涨</h3><br><p>六氟磷酸锂价格单月上涨10%，电解液龙头盈利修复。<br><br> | 来源：<code>https://17cmwang.com.cn
+</code></p><br><br><h3>万华化学涨超3.5%，化工品价格企稳回升</h3><br><p>海外对冲基金集中调研CXO龙头，新签订单增速超预期。<br><br> | 来源：<code>https://17cnyiqicao.com.cn
+</code></p><br><br><h3>实控人邀约收购中药创新药企业，溢价35%发起全面要约</h3><br><p>国内剧本杀文旅项目破千个，沉浸式文旅体验成新风口。<br><br> | 来源：<code>https://17cnyiqicaochigua.com.cn
+</code></p><br><br><h3>央行超额续作MLF并降息5BP，流动性宽松信号明确</h3><br><p>吉林高速异动拉升1.7%，区域路网业务逐步复苏。<br><br> | 来源：<code>https://17cnyiqicaomeiridasai.com.cn
+</code></p><br><br><h3>沪股通席位单日买入金风科技1亿，风电龙头获外资增持</h3><br><p>中芯国际放量拉升7.3%，14nm产能利用率持续提升。<br><br> | 来源：<code>https://17cqicao.com.cn
+</code></p><br><br><h3>民宿行业规范发展政策，乡村旅游标的全线拉升</h3><br><p>全国新能源汽车保有量突破3000万辆，减排效果显著。<br><br> | 来源：<code>https://17cqicaokou.com.cn
+</code></p><br><br><h3>联合国可持续发展目标中期评估，明确后续行动路径</h3><br><p>万科A异动拉升，地产链反弹的关键位与风控思路。<br><br> | 来源：<code>https://17cqicaozaixianguankan.com.cn
+</code></p><br><br><h3>预制菜产业标准出台，预制菜板块走强</h3><br><p>恒瑞医药创新药管线：国内创新药龙头的研发投入回报。<br><br> | 来源：<code>https://17cqicaozaixianguankanmianfeiban.com.cn
+</code></p><br><br><h3>全国绿色物流示范城市创建，快递电动化率达95%</h3><br><p>2026年体育强国建设成效显著，全民健身与全民健康深度融合。<br><br> | 来源：<code>https://17cshipin.com.cn
