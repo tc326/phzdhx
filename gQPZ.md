@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时08分14秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>5年期LPR下调带动居民购房意愿回升，地产销售边际改善</h3><br><p>中国中铁一带一路订单落地，单季业绩预告超预期。<br><br> | 来源：<code>https://jinmantianwang.com.cn
+</code></p><br><br><h3>QFII大幅加仓光伏支架标的，跟踪支架海外渗透率提升获看好</h3><br><p>炒股最难的不是买对，而是在波动里守住正确的持仓。<br><br> | 来源：<code>https://jinmanwang.com.cn
+</code></p><br><br><h3>全国文化产业园区超3000家，集聚效应带动创意产业发展</h3><br><p>东方财富获机构席位净买入4.2亿，互联网券商获资金加仓。<br><br> | 来源：<code>https://jinpiantiantang.com.cn
+</code></p><br><br><h3>全球区块链产业规模突破万亿美元，Web3.0应用落地加速</h3><br><p>地方国资战略入股氢能燃料电池标的，助力商用车推广落地。<br><br> | 来源：<code>https://jinpingmei-new.com.cn
+</code></p><br><br><h3>半导体国产替代推进：制造、设备、材料的突破路径</h3><br><p>市场永远不缺机会，缺的是耐心等待属于自己的机会。<br><br> | 来源：<code>https://jinpingmei-web.com.cn
+</code></p><br><br><h3>天顺风能风电塔架布局：风电零部件龙头的全球份额</h3><br><p>数字人民币核心标的启动申购，线下场景覆盖突破亿级用户。<br><br> | 来源：<code>https://jinri-tongrenku.com.cn
+</code></p><br><br><h3>知名私募大手笔增持TOPCon电池标的，持仓占比达4%</h3><br><p>全国光伏装机容量突破9亿千瓦，分布式光伏占比超60%。<br><br> | 来源：<code>https://jinritong.com.cn
+</code></p><br><br><h3>维生素A价格单月上涨18%，饲料添加剂板块迎来行情</h3><br><p>保险资管举牌绿电运营标的，长期配置价值获机构认可。<br><br> | 来源：<code>https://jinritongrenku.com.cn
+</code></p><br><br><h3>大模型在水利领域应用，洪水预警提前量提升至72小时</h3><br><p>机构专用席位净买入长电科技1.9亿，封测龙头获长线资金加仓。<br><br> | 来源：<code>https://jinsique.org.cn
+</code></p><br><br><h3>科达利放量拉升4.7%，锂电池结构件订单饱满</h3><br><p>人工智能产业标准落地，AI合规标的全线异动。<br><br> | 来源：<code>https://jintiantangman.cn
+</code></p><br><br><h3>多地景区推出免票政策，国有A级景区免票覆盖超300家</h3><br><p>财政部出台减税降费新政，全年为企业减负超1.2万亿元。<br><br> | 来源：<code>https://jiqing-wangzhan.com.cn
+</code></p><br><br><h3>多地优化楼市限购政策，取消二环外住房限购限制</h3><br><p>软件企业所得税优惠延续，国产软件板块异动。<br><br> | 来源：<code>https://jiu-jiu-shipin.com.cn
+</code></p><br><br><h3>保险资管扎堆调研CRO龙头，创新药管线临床数据披露</h3><br><p>全球无人机市场规模突破1500亿美元，行业应用爆发。<br><br> | 来源：<code>https://jiu-jiujiu.com.cn
+</code></p><br><br><h3>游资知名席位联手买入中国船舶2亿，造船标的获资金追捧</h3><br><p>QFII集中调研快递物流龙头，单票盈利创历史新高。<br><br> | 来源：<code>https://jiu-seshipin.com.cn
+</code></p><br><br><h3>锂价连续反弹三个月，锂矿板块集体走强</h3><br><p>海外对冲基金组团调研广告营销龙头，AI营销订单同比大增。<br><br> | 来源：<code>https://jiu-you-tiyu.com.cn
+</code></p><br><br><h3>游资顶级席位联手买入天齐锂业3亿，锂矿龙头获资金追捧</h3><br><p>全国东北虎种群数量突破70只，野生虎栖息地持续扩大。<br><br> | 来源：<code>https://jiu-you-yule.com.cn
+</code></p><br><br><h3>重庆洪崖洞暑期客流创新高，网红打卡点日均接待超15万</h3><br><p>全国心理健康服务体系覆盖所有高校，心理疏导惠及千万学生。<br><br> | 来源：<code>https://jiu-youyule.cn
+</code></p><br><br><h3>长安汽车放量上涨4.9%，深蓝品牌月销破3万</h3><br><p>文化产业扶持政策，文化传媒板块全线异动。<br><br> | 来源：<code>https://jiucaoshequ.cn
+</code></p><br><br><h3>全国家电以旧换新政策落地，回收拆解绿色化率达100%</h3><br><p>保险资管扎堆调研煤炭智能化龙头，煤矿智能化改造渗透率。<br><br> | 来源：<code>https://jiujiu-ai.com.cn
+</code></p><br><br><h3>知名私募组团调研MR产业链标的，新品备货数据曝光</h3><br><p>城市防洪排涝政策，管网建设标的全线拉升。<br><br> | 来源：<code>https://jiujiu-cao.com.cn
