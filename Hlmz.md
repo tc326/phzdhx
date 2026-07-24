@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时07分17秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>游资知名席位联手买入登海种业5600万，种业标的获追捧</h3><br><p>伊利股份乳制品量价齐升，前三季度业绩预增超20%。<br><br> | 来源：<code>https://zh-panjinlian.com.cn
+</code></p><br><br><h3>明阳智能海上风电优势：大兆瓦风机的技术领先性逻辑</h3><br><p>多地推出夜间文旅补贴，商户夜间经营成本下降30%。<br><br> | 来源：<code>https://zh-pipi-yingyuan.com.cn
+</code></p><br><br><h3>自驾游市场上半年订单同比增长55%，房车旅行成为新选择</h3><br><p>实控人溢价15%增持碳纤维企业，传递长期发展信心。<br><br> | 来源：<code>https://zh-pipiyingyuan.com.cn
+</code></p><br><br><h3>全国足球场数量超20万个，人均足球场地面积达1.8平方米</h3><br><p>南昌推出“红色夜校”文旅项目，夜间红色体验游受热捧。<br><br> | 来源：<code>https://zh-pochu.com.cn
+</code></p><br><br><h3>恒瑞医药异动拉升5.6%，创新药新品贡献增量</h3><br><p>内蒙古草原暑期游火爆，那达慕大会吸引超百万游客参与。<br><br> | 来源：<code>https://zh-quanluo.com.cn
+</code></p><br><br><h3>外资资管举牌固态电解质企业，下一代电池技术获外资重仓</h3><br><p>明阳智能涨超4.8%，大兆瓦风机份额持续提升。<br><br> | 来源：<code>https://zh-rujiao.com.cn
+</code></p><br><br><h3>国内主题乐园暑期营收同比增长75%，亲子游成核心主力</h3><br><p>中国女子排球队奥运资格赛全胜，直通巴黎奥运会。<br><br> | 来源：<code>https://zh-sanjipian.com.cn
+</code></p><br><br><h3>比亚迪全产业链布局分析：从电池到整车的协同优势</h3><br><p>赛力斯华为车型销量破10万，单季业绩减亏超预期。<br><br> | 来源：<code>https://zh-saohuo.com.cn
+</code></p><br><br><h3>外资持续流入亿纬锂能，储能龙头外资持仓占比突破4%</h3><br><p>维生素A价格单月上涨18%，饲料添加剂板块迎来行情。<br><br> | 来源：<code>https://zh-sejishikong.com.cn
+</code></p><br><br><h3>全国家电以旧换新政策落地，回收拆解绿色化率达100%</h3><br><p>中国现代五项队世锦赛夺得金牌，全能项目实现突破。<br><br> | 来源：<code>https://zh-shaofu.com.cn
+</code></p><br><br><h3>海尔智家稳步上行，慢牛趋势下的持仓节奏</h3><br><p>新宙邦涨超4.5%，电解液盈利预期改善。<br><br> | 来源：<code>https://zh-shouyin.com.cn
+</code></p><br><br><h3>中芯国际管理层优势：半导体制造龙头的经营效率提升</h3><br><p>北方稀土异动拉升，稀土永磁行业供需格局优化。<br><br> | 来源：<code>https://zh-shunu.com.cn
+</code></p><br><br><h3>中国象棋队世锦赛全部夺冠，传统棋类运动长盛不衰</h3><br><p>多地推出稳外贸新政，出口退税速度压缩至3个工作日内。<br><br> | 来源：<code>https://zh-sm.com.cn
+</code></p><br><br><h3>全国文化和旅游消费试点城市扩围，打造百个消费标杆城市</h3><br><p>人民币对美元汇率升值至6.7关口，外汇储备规模稳定在3.3万亿美元。<br><br> | 来源：<code>https://zh-tiaojiao.com.cn
+</code></p><br><br><h3>AI翻译工具支持百种语言实时互译，准确率超专业译员</h3><br><p>汽车下乡补贴政策出台，自主车企标的全线上涨。<br><br> | 来源：<code>https://zh-wuma.com.cn
+</code></p><br><br><h3>慢就是快：在高确定性标的上持仓，远比追热点赚得稳</h3><br><p>全国重点海域入海排污口整治完成，海洋污染源头管控加强。<br><br> | 来源：<code>https://zh-xiuxiushipin.com.cn
+</code></p><br><br><h3>全面降准0.25个百分点，释放长期资金5000亿</h3><br><p>沪硅产业涨超5.8%，12英寸硅片产能持续释放。<br><br> | 来源：<code>https://zh-yazhoujingpin.com.cn
+</code></p><br><br><h3>航发动力放量拉升5.2%，军工发动机订单落地加速</h3><br><p>全国东北虎种群数量突破70只，野生虎栖息地持续扩大。<br><br> | 来源：<code>https://zh-yazhoutiantang.com.cn
+</code></p><br><br><h3>保险资管举牌机器人减速器标的，核心零部件获机构重仓</h3><br><p>降准资金定向支持绿色能源，光伏风电板块获流动性利好。<br><br> | 来源：<code>https://zh-yin.com.cn
+</code></p><br><br><h3>北向资金连续调研后举牌智能电网标的，外资持续流入</h3><br><p>大模型在新闻领域应用，AI生成快讯占比超60%。<br><br> | 来源：<code>https://zh-yinghuashipin.com.cn
