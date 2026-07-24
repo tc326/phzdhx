@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时07分11秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>人民币汇率大幅升值，航空造纸板块集体上涨</h3><br><p>苏州园林暑期接待人次破500万，江南古典文旅持续走红。<br><br> | 来源：<code>https://jingpinyiquerqu.com.cn
+</code></p><br><br><h3>国内自驾游人次破10亿，新能源自驾路线成热门选择</h3><br><p>全国智慧健身器材普及至社区，运动数据实时上传健康平台。<br><br> | 来源：<code>https://jingxiangjulia.net.cn
+</code></p><br><br><h3>游戏版号常态化发放，游戏板块持续异动</h3><br><p>国际金价创历史新高，黄金珠宝标的集体上涨。<br><br> | 来源：<code>https://jinman-tiantang.com.cn
+</code></p><br><br><h3>亿纬锂能储能订单爆发，前三季度业绩预增90%</h3><br><p>存款利率迎来新一轮下调，银行板块短期承压负债端改善。<br><br> | 来源：<code>https://jinmandaowang.com.cn
+</code></p><br><br><h3>锌价突破2.8万元/吨，锌业上市公司盈利弹性释放</h3><br><p>神州高铁放量上涨3.7%，轨道交通运维业务增长。<br><br> | 来源：<code>https://jinmantiantangbenzi.com.cn
+</code></p><br><br><h3>洋河梦之蓝批价上调4%，白酒全产业链盈利优化</h3><br><p>全国马拉松赛事上半年举办超500场，参赛人次突破600万。<br><br> | 来源：<code>https://jinmantiantangfabuye.com.cn
+</code></p><br><br><h3>政策性降息支持保障性住房建设，保障房产业链受益</h3><br><p>存款利率市场化调整机制优化，银行负债端成本进一步压降。<br><br> | 来源：<code>https://jinmantiantangfangwen.com.cn
+</code></p><br><br><h3>紫金矿业沿5日均线上行，趋势行情下的持仓策略</h3><br><p>中国冲浪队首次获得世界冠军，水上运动版图持续扩大。<br><br> | 来源：<code>https://jinmantiantangjmcomic.com.cn
+</code></p><br><br><h3>中远海控集运运价反弹，单季业绩预告环比大增</h3><br><p>知名私募调研钠电池龙头，量产线投产时间点首次公开。<br><br> | 来源：<code>https://jinmantiantangmanhua.com.cn
+</code></p><br><br><h3>1年期MLF利率下调带动全市场利率下行，债券牛市延续</h3><br><p>游资顶级席位打板北方华创2.1亿，半导体设备标的获热炒。<br><br> | 来源：<code>https://jinmantiantangrukou.com.cn
+</code></p><br><br><h3>中兴通讯通信技术积累：6G时代的核心竞争力展望</h3><br><p>水产品价格集体上涨，水产养殖板块迎来涨价催化。<br><br> | 来源：<code>https://jinmantiantangwang.com.cn
+</code></p><br><br><h3>全国文旅数字化升级，超500家景区实现AR导览全覆盖</h3><br><p>哈尔滨暑期游热度反超冬季，冰雪大世界夏季版开园迎客。<br><br> | 来源：<code>https://jinmantiantangwangye.com.cn
+</code></p><br><br><h3>头部机构组团到访冷链物流标的，生鲜配送网络覆盖披露</h3><br><p>实控人邀约收购家电出海龙头，溢价30%发起全面要约。<br><br> | 来源：<code>https://jinmantiantangwangyeban.com.cn
+</code></p><br><br><h3>中国男子击剑队世锦赛团体夺冠，重回世界顶尖行列</h3><br><p>东方盛虹EVA树脂优势：光伏胶膜原料龙头的景气受益。<br><br> | 来源：<code>https://jinmantiantangwangyebanlianjie.com.cn
+</code></p><br><br><h3>苏州推出“姑苏八点半”升级活动，夜间消费场景拓展至全域</h3><br><p>全国高血压患者管理人数突破1亿人，规范管理率达90%。<br><br> | 来源：<code>https://jinmantiantangzaixian.com.cn
+</code></p><br><br><h3>璞泰来负极材料盈利改善，前三季度业绩预增超40%</h3><br><p>餐饮消费促进政策，餐饮连锁标的全线异动。<br><br> | 来源：<code>https://jinmantiantangzaixianguankan.com.cn
+</code></p><br><br><h3>券商研究所扎堆调研车载雷达标的，激光雷达量产交付节奏</h3><br><p>超210家机构到访AI安防龙头，海外政府订单同比大增。<br><br> | 来源：<code>https://jinmantianwang.com.cn
+</code></p><br><br><h3>海尔智家稳步上行，慢牛趋势下的持仓节奏</h3><br><p>铅价上涨7%，铅酸电池板块盈利边际改善。<br><br> | 来源：<code>https://jinmanwang.com.cn
+</code></p><br><br><h3>实控人溢价15%增持碳纤维企业，传递长期发展信心</h3><br><p>武当山暑期游客量突破120万人次，道教文化游持续升温。<br><br> | 来源：<code>https://jinpiantiantang.com.cn
+</code></p><br><br><h3>保险资管扎堆调研机器人减速器标的，产能释放进度披露</h3><br><p>全国生物燃料乙醇产能突破500万吨，替代传统化石燃料。<br><br> | 来源：<code>https://jinpingmei-new.com.cn
