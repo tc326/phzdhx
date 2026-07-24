@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时08分19秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>联合国可持续发展目标中期评估，明确后续行动路径</h3><br><p>粤港澳大湾区政策升级，湾区地产基建标的走强。<br><br> | 来源：<code>https://wushipinwangzhanmianfeizaixianguankan.cn
+</code></p><br><br><h3>招商银行股价修复，银行板块高股息属性获资金青睐</h3><br><p>多地推出稳外贸新政，出口退税速度压缩至3个工作日内。<br><br> | 来源：<code>https://wushipinzaixian.cn
+</code></p><br><br><h3>恒瑞医药创新药管线：研发投入进入收获期的业绩展望</h3><br><p>洛阳龙门石窟暑期推出夜游项目，门票上线即秒空。<br><br> | 来源：<code>https://wutenglan.com.cn
+</code></p><br><br><h3>游资顶级席位打板璞泰来1.7亿，锂电材料标的获热炒</h3><br><p>全球元宇宙相关产业规模突破2万亿美元，应用场景拓展。<br><br> | 来源：<code>https://wuwushipinzaixianguankan.cn
+</code></p><br><br><h3>抽水蓄能电站规划，抽水蓄能板块走强</h3><br><p>绍兴推出“跟着课本游绍兴”线路，研学游覆盖超百万学生。<br><br> | 来源：<code>https://wuye-chengren-shipin.com.cn
+</code></p><br><br><h3>结构性降息精准支持制造业，高端制造板块获定向利好</h3><br><p>社保基金新进智慧矿山龙头，布局煤矿智能化改造赛道。<br><br> | 来源：<code>https://wuye-chengren-wangzhan.com.cn
+</code></p><br><br><h3>保利发展土储优势：核心城市优质土储的长期价值释放</h3><br><p>北向资金大额扫货赣锋锂业2.6亿，锂矿龙头获外资流入。<br><br> | 来源：<code>https://wuye-fuli.cn
+</code></p><br><br><h3>能耗双控政策优化，高耗能行业龙头标的走强</h3><br><p>国产游戏上半年出海营收突破80亿美元，文化输出能力增强。<br><br> | 来源：<code>https://wuye-tingting.com.cn
+</code></p><br><br><h3>全国全民健身日活动覆盖超亿人次，群众体育热情高涨</h3><br><p>金砖国家新成员全部完成入盟流程，成员国总数达15国。<br><br> | 来源：<code>https://wuyefuli.com.cn
+</code></p><br><br><h3>国际地缘与全球经济（100条）</h3><br><p>控股股东耗资5.2亿增持智慧交通标的，回购股份用于股权激励。<br><br> | 来源：<code>https://wuyefuli.net.cn
+</code></p><br><br><h3>贵州茅台站稳1720元，批价回升带动板块情绪</h3><br><p>游资知名席位联手买入赛力斯1.4亿，整车标的获资金追捧。<br><br> | 来源：<code>https://wuyefulipian.cn
+</code></p><br><br><h3>钾肥价格连续上涨10%，钾肥板块盈利弹性释放</h3><br><p>企业债券融资利率大幅下行，直接融资占比进一步提升。<br><br> | 来源：<code>https://wuyefulishipin.cn
+</code></p><br><br><h3>QFII集中调研海上风电标的，深远海项目订单引热议</h3><br><p>存储芯片价格连续上涨12%，存储板块迎来趋势性行情。<br><br> | 来源：<code>https://wuyeshipin.cn
+</code></p><br><br><h3>券商研究所扎堆调研AI芯片设计标的，大模型推理芯片流片成功</h3><br><p>铅价上涨7%，铅酸电池板块盈利边际改善。<br><br> | 来源：<code>https://wuyeshipin.net.cn
+</code></p><br><br><h3>餐饮消费促进政策，餐饮连锁标的全线异动</h3><br><p>中兴通讯沿趋势线上行，通信板块的轮动机会。<br><br> | 来源：<code>https://wuzaixianguankan.cn
+</code></p><br><br><h3>金风科技风电装机超预期，前三季度业绩预增超40%</h3><br><p>2026年全国高考报名人数1391万，多地新增AI相关专业招生。<br><br> | 来源：<code>https://www-91.cn
+</code></p><br><br><h3>深股通席位单日买入海天味业6100万，调味品标的增持</h3><br><p>黄河流域生态保护取得阶段性成效，水质优良比例达92%。<br><br> | 来源：<code>https://www-91.com.cn
+</code></p><br><br><h3>全国徒步大会覆盖300城，参与人次破千万</h3><br><p>锦浪科技涨超7.0%，组串式逆变器出口高增。<br><br> | 来源：<code>https://www-91com.com.cn
+</code></p><br><br><h3>洽洽食品坚果业务高增，前三季度业绩预增超30%</h3><br><p>中国与中亚五国经贸合作升级，双边贸易额突破千亿。<br><br> | 来源：<code>https://www-91n.com.cn
+</code></p><br><br><h3>韦尔股份CIS芯片需求回暖，单季业绩预告扭亏</h3><br><p>低空经济龙头登陆创业板，eVTOL适航认证进度成核心看点。<br><br> | 来源：<code>https://www-91ncom.com.cn
