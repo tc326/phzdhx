@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时06分58秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>非洲自贸区正式启动运营，覆盖13亿人口形成统一大市场</h3><br><p>券商研究所扎堆调研车载芯片龙头，车规级认证进度超预期。<br><br> | 来源：<code>https://jiujiuri.com.cn
+</code></p><br><br><h3>养老金新进虚拟电厂标的，首次布局电力信息化赛道</h3><br><p>科大讯飞放量上涨6.8%，AI教育产品落地加速。<br><br> | 来源：<code>https://jiujiuse.com.cn
+</code></p><br><br><h3>全国远程医疗覆盖所有县域，优质医疗资源下沉至基层</h3><br><p>赣锋锂业回收业务布局：锂电回收的长期成长空间解析。<br><br> | 来源：<code>https://jiujiuxiaoshuo.com.cn
+</code></p><br><br><h3>国产航母新进展，军工船舶板块集体异动</h3><br><p>全国医保目录新增126种新药，涵盖多款罕见病特效药。<br><br> | 来源：<code>https://jiujiuyingshiyingyuan.com.cn
+</code></p><br><br><h3>西部大开发新规划出台，西部基建标的全线拉升</h3><br><p>房贷利率动态调整机制优化，重点城市房贷利率进一步下行。<br><br> | 来源：<code>https://jiujiuyiren.com.cn
+</code></p><br><br><h3>药明康德海外订单爆发，前三季度业绩预增超60%</h3><br><p>亿纬锂能异动拉升6.3%，大储订单持续超预期。<br><br> | 来源：<code>https://jiujiuzaixian.com.cn
+</code></p><br><br><h3>产业资本连续增持储能温控龙头，产业链上下游协同布局</h3><br><p>青岛暑期滨海旅游订单同比增长40%，海滨城市人气高涨。<br><br> | 来源：<code>https://jiujiuzaixianguankan.com.cn
+</code></p><br><br><h3>头部机构组团到访风电轴承龙头，大兆瓦轴承市占率提升</h3><br><p>东方电气氢能布局：能源装备龙头的第二成长曲线解析。<br><br> | 来源：<code>https://jiujiuzaixianshipin.com.cn
+</code></p><br><br><h3>全球汽车市场新能源渗透率突破30%，中国品牌引领潮流</h3><br><p>中国霹雳舞队奥运会夺得金牌，新兴街舞项目站上世界之巅。<br><br> | 来源：<code>https://jiulifanzaixiankan.com.cn
+</code></p><br><br><h3>全国城市篮球联赛举办，覆盖百城参赛队伍破万支</h3><br><p>全国绿色出行创建行动推进，超百个城市建成绿色交通体系。<br><br> | 来源：<code>https://jiuqugan.cn
+</code></p><br><br><h3>头部公募调研汽车电子标的，车规芯片出货量环比大增</h3><br><p>全国会展经济快速复苏，上半年展览场次同比增长45%。<br><br> | 来源：<code>https://jiuqusese.cn
+</code></p><br><br><h3>上半年全国风电装机新增超3000万千瓦，清洁能源建设提速</h3><br><p>江铃汽车新能源轻卡高增，单季业绩预告超预期。<br><br> | 来源：<code>https://jiusedaohang.com.cn
+</code></p><br><br><h3>外资资管举牌固态电解质企业，下一代电池技术获外资重仓</h3><br><p>晶澳科技涨超4.8%，光伏组件出口数据亮眼。<br><br> | 来源：<code>https://jiuxian-lawang-app.com
+</code></p><br><br><h3>降准释放长期资金支持新能源，绿电板块迎来定向利好</h3><br><p>美的集团创年内新高，多头排列下的趋势延续性。<br><br> | 来源：<code>https://jiuyou-sports-go.com.cn
+</code></p><br><br><h3>10年期国债收益率下行至2.5%以下，权益资产吸引力提升</h3><br><p>光伏N型电池设备标的登陆科创板，TOPCon设备市占率超60%。<br><br> | 来源：<code>https://jixing-paidui-official.com
+</code></p><br><br><h3>北京君正车载存储优势：汽车电子赛道的高景气受益标的</h3><br><p>中国毽球队世界杯包揽全部冠军，民间运动走向世界舞台。<br><br> | 来源：<code>https://jizemingbu.com.cn
+</code></p><br><br><h3>西部大开发新规划出台，西部基建标的全线拉升</h3><br><p>QFII新进汽车芯片标的，MCU国产替代获海外机构看好。<br><br> | 来源：<code>https://jkbaisi.com.cn
+</code></p><br><br><h3>黄金价格创历史新高，黄金珠宝板块盈利弹性释放</h3><br><p>稀土价格政策调控收储，稀土永磁标的全线拉升。<br><br> | 来源：<code>https://jm-cn.com.cn
+</code></p><br><br><h3>通威股份渔光互补模式：农业+新能源的协同发展路径</h3><br><p>存款利率连续下调，居民配置权益资产意愿持续增强。<br><br> | 来源：<code>https://jm-manhua.com.cn
+</code></p><br><br><h3>醋产品价格上调6%，食醋板块盈利改善</h3><br><p>宇通客车放量上涨3.8%，海外客车出口数据亮眼。<br><br> | 来源：<code>https://jm-wangye-ban.com.cn
