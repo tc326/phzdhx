@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时23分16秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>宝钢股份板材盈利修复，前三季度业绩预增超30%</h3><br><p>上半年全国跨境电商进出口额同比增长15%，新业态活力迸发。<br><br> | 来源：<code>skillrace.cn
+</code></p><br><br><h3>嫦娥探月工程新任务，航天科技产业链迎来催化</h3><br><p>中国电竞战队S13总决赛夺冠，LPL赛区连续三年捧杯。<br><br> | 来源：<code>bibistar.cn
+</code></p><br><br><h3>复合肥价格上调7%，化肥全产业链盈利优化</h3><br><p>跨境游持续升温，中国游客赴东南亚人次同比暴涨200%。<br><br> | 来源：<code>jingnews.cn
+</code></p><br><br><h3>全国老年大学体育课程覆盖超千万老人，健康老龄化推进</h3><br><p>医美监管政策优化，医美消费标的全线拉升。<br><br> | 来源：<code>hrnhug.cn
+</code></p><br><br><h3>百亿私募组团调研固态电解质企业，实验室数据突破行业阈值</h3><br><p>QFII大幅加仓预制菜龙头，B端渠道扩张获海外机构看好。<br><br> | 来源：<code>cqxsx.cn
+</code></p><br><br><h3>飞天茅台批价突破2900元，白酒龙头盈利超预期</h3><br><p>全国乡村旅游重点村暑期接待人次破1亿，民宿入住率超95%。<br><br> | 来源：<code>gmsz.cn
+</code></p><br><br><h3>公募基金集中调研智慧交通标的，车路协同项目落地节奏</h3><br><p>央行下调MLF利率10个基点，引导市场利率下行。<br><br> | 来源：<code>www.mgyou.com
+</code></p><br><br><h3>地方国资战略入股种业龙头，助力生物育种商业化落地</h3><br><p>科大讯飞教育赛道优势：AI+教育的商业化落地领先性。<br><br> | 来源：<code>www.zdxtz.com
+</code></p><br><br><h3>金砖国家新成员全部完成入盟流程，成员国总数达15国</h3><br><p>文化纸价格单月上涨6%，纸企盈利边际改善。<br><br> | 来源：<code>www.duioo.com
+</code></p><br><br><h3>头部机构组团到访核电设备龙头，新机组中标订单披露</h3><br><p>保险资管扎堆调研CRO龙头，创新药管线临床数据披露。<br><br> | 来源：<code>www.zheejia.com
+</code></p><br><br><h3>瑞士经济温和增长，金融和高端制造业表现稳定</h3><br><p>北向资金连续增持液冷技术龙头，AI数据中心需求获外资加仓。<br><br> | 来源：<code>www.kingslawfirm.com
+</code></p><br><br><h3>创新器械企业登陆港股，核心管线海外FDA获批引资金追捧</h3><br><p>地产链政策宽松预期：房企、家居、建材的轮动机会梳理。<br><br> | 来源：<code>www.longnancun.com
+</code></p><br><br><h3>知名私募调研量子通信标的，干线网络建设落地节奏披露</h3><br><p>全国马术赛事超百场，马术运动从小众走向大众。<br><br> | 来源：<code>www.ym5184.com
+</code></p><br><br><h3>美联储宣布降息50BP超市场预期，全球风险资产暴涨</h3><br><p>料酒价格上涨4%，调味品细分板块迎来行情。<br><br> | 来源：<code>www.lvyuepai.com
+</code></p><br><br><h3>定向降准支持县域金融机构，乡村振兴板块迎来利好</h3><br><p>招商公路涨超2.4%，公路运营龙头价值凸显。<br><br> | 来源：<code>www.youngstrong.cn
+</code></p><br><br><h3>谷爱凌复出参加世锦赛，斩获自由式滑雪U型场地金牌</h3><br><p>世界乒乓球锦标赛中国队包揽5金，延续国乒辉煌。<br><br> | 来源：<code>www.41yvs.cn
+</code></p><br><br><h3>国内大模型评测标准发布，统一行业能力评估体系</h3><br><p>民用无人机管理新规，无人机产业链全线走强。<br><br> | 来源：<code>www.hospitalcdm.cn
+</code></p><br><br><h3>东方财富获机构席位净买入4.2亿，互联网券商获资金加仓</h3><br><p>四川路桥异动拉升3.8%，四川区域基建订单爆发。<br><br> | 来源：<code>www.mayilt.cn
+</code></p><br><br><h3>汽车一体化压铸企业启动申购，9000T压铸机产能全球领先</h3><br><p>百亿私募组团调研固态电解质企业，实验室数据突破行业阈值。<br><br> | 来源：<code>www.ebtea.cn
+</code></p><br><br><h3>广州马拉松开跑，参赛选手破3万全马完赛率创新高</h3><br><p>万科A异动拉升，地产链反弹的关键位与风控思路。<br><br> | 来源：<code>www.seodoc.cn
