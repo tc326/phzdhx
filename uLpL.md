@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时06分53秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>全球循环经济市场规模突破5万亿美元，资源利用效率提升</h3><br><p>新能源赛道集体反弹：动力电池、光伏、储能谁是领涨主线。<br><br> | 来源：<code>https://91-dapian.com.cn
+</code></p><br><br><h3>金风科技异动拉升4.5%，海上风电装机量超预期</h3><br><p>航发动力放量拉升5.2%，军工发动机订单落地加速。<br><br> | 来源：<code>https://91-guanwang.com.cn
+</code></p><br><br><h3>中国手球俱乐部首次获得亚洲冠军，项目发展迎来新机遇</h3><br><p>海康威视W底形态确立，底部反转信号明确。<br><br> | 来源：<code>https://91-mianfeiban.com.cn
+</code></p><br><br><h3>蔚来汽车放量上涨8.8%，换电网络覆盖持续扩大</h3><br><p>头部券商到访酒店连锁龙头，RevPAR恢复至2019年120%。<br><br> | 来源：<code>https://91-mianfeiwang.cn
+</code></p><br><br><h3>纸价开启新一轮提价潮，造纸板块盈利迎来修复</h3><br><p>欧元区经济走出衰退，二季度GDP环比增长0.3%。<br><br> | 来源：<code>https://91-n.cn
+</code></p><br><br><h3>重庆路桥异动拉升2.4%，区域路桥业务盈利稳定</h3><br><p>多晶硅价格连续上涨7%，光伏产业链价格体系企稳回升。<br><br> | 来源：<code>https://91-n.com.cn
+</code></p><br><br><h3>大股东耗资7亿增持游戏出海龙头，回购用于员工持股计划</h3><br><p>全球智能家居市场规模突破1万亿美元，智慧家庭普及。<br><br> | 来源：<code>https://91-shipinwang.com.cn
+</code></p><br><br><h3>汽车零部件赛道景气度上行：细分方向机会全梳理</h3><br><p>桂林山水暑期游热度回升，漓江游船日均发船超200艘。<br><br> | 来源：<code>https://91-shipinwangzhan.com.cn
+</code></p><br><br><h3>全国船舶排放控制区扩大，海运污染减排成效突出</h3><br><p>拉美多国签署货币互换协议，减少对美元依赖。<br><br> | 来源：<code>https://91-shipinzaixianguankan.com.cn
+</code></p><br><br><h3>养老金入市比例提升，养老金重仓标的走强</h3><br><p>恒瑞医药研发管线复盘：从仿制药龙头到创新药巨头的蜕变。<br><br> | 来源：<code>https://91-tv.com.cn
+</code></p><br><br><h3>国内剧本杀文旅项目破千个，沉浸式文旅体验成新风口</h3><br><p>机构专用席位净买入长电科技1.9亿，封测龙头获长线资金加仓。<br><br> | 来源：<code>https://91-wang.com.cn
+</code></p><br><br><h3>芯片价格开启涨价潮，半导体板块盈利迎来修复</h3><br><p>敦煌莫高窟数字展示中心升级，游客沉浸式体验千年壁画。<br><br> | 来源：<code>https://91-www.cn
+</code></p><br><br><h3>液态奶价格上涨3%，乳制品板块迎来涨价催化</h3><br><p>露营经济上半年市场规模突破300亿元，精致露营成为新趋势。<br><br> | 来源：<code>https://91-zaixianguankan.com.cn
+</code></p><br><br><h3>10年期国债收益率下行至历史低位，高股息资产配置价值凸显</h3><br><p>全国保障性住房建设进度过半，年内新开工超300万套。<br><br> | 来源：<code>https://9170-guanfang-jinsha.com
+</code></p><br><br><h3>外资单日加仓三一重工12亿，工程机械龙头获外资回流</h3><br><p>主线行情里不要轻易切换赛道：拿住核心标的才能吃到大行情。<br><br> | 来源：<code>https://9170-jinsha-official.com
+</code></p><br><br><h3>联合国可持续发展目标中期评估，明确后续行动路径</h3><br><p>央行下调再贷款利率，精准支持科技创新领域。<br><br> | 来源：<code>https://9170-mobile-login.com
+</code></p><br><br><h3>交控科技城轨信号优势：国内城轨信号系统的国产替代</h3><br><p>温氏股份放量上涨4.2%，养殖业务盈利持续修复。<br><br> | 来源：<code>https://9170-sands-official.com
+</code></p><br><br><h3>华为盘古大模型行业落地，工业AI板块持续升温</h3><br><p>隆平高科种业业务爆发，前三季度业绩预增超50%。<br><br> | 来源：<code>https://91cangku.cn
+</code></p><br><br><h3>实控人承诺6个月内不减持机器人控制器标的，稳定股价</h3><br><p>钾肥价格连续上涨10%，钾肥板块盈利弹性释放。<br><br> | 来源：<code>https://91ci-yuan.com.cn
+</code></p><br><br><h3>进口博览会政策红利，进口贸易板块全线走强</h3><br><p>私募基金仓位创年内新高，私募重仓标的上涨。<br><br> | 来源：<code>https://91ciyuan.com.cn
