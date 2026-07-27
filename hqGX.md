@@ -1,0 +1,21 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月27日 20时39分33秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>中际旭创光模块技术优势：全球数通市场的份额扩张</h3><br><p>国家统计局发布新动能指数，同比增长17%创新高。<br><br> | 来源：<code>www.nimendong.com
+</code></p><br><br><h3>全国石漠化土地面积持续缩减，治理率超60%</h3><br><p>百度文心大模型4.5版本发布，推理速度提升400%成本下降70%。<br><br> | 来源：<code>www.captainandthechief.com
+</code></p><br><br><h3>京东言犀大模型供应链版上线，助力电商降本增效</h3><br><p>超280家机构到访工业母机龙头，五轴机床量产进度超预期。<br><br> | 来源：<code>www.szdesign-art.com
+</code></p><br><br><h3>河南卫视中国节日系列节目全网播放量突破200亿次</h3><br><p>AI实时翻译耳机普及，跨语言沟通障碍彻底打破。<br><br> | 来源：<code>www.vetb-us.com
+</code></p><br><br><h3>全球新材料市场规模突破5万亿美元，支撑高端制造发展</h3><br><p>赛力斯单日大涨8.3%，问界新车型销量引爆市场。<br><br> | 来源：<code>www.winfae.com
+</code></p><br><br><h3>交控科技异动拉升4.5%，城轨信号系统订单爆发</h3><br><p>首套房贷款利率突破2.9%，刚需购房成本创历史新低。<br><br> | 来源：<code>www.hmmanhua.com
+</code></p><br><br><h3>外资资管连续加仓跨境支付标的，近3月持仓占比提升至6%</h3><br><p>通威股份涨超4.9%，硅料价格企稳反弹。<br><br> | 来源：<code>www.hebccpi.com
+</code></p><br><br><h3>基金公司集体到访人形电机龙头，力矩电机产能释放数据</h3><br><p>招商公路平台化布局：全国公路网络的整合成长逻辑。<br><br> | 来源：<code>www.cncbsc.com
+</code></p><br><br><h3>黄山暑期单日客流破4万，山顶酒店提前半个月售罄</h3><br><p>全国职业体育俱乐部数量超2000家，联赛体系覆盖全项目。<br><br> | 来源：<code>www.yinxi.net
+</code></p><br><br><h3>国产现实题材电视剧收视领跑，多部作品斩获国际奖项</h3><br><p>东方雨虹建材需求回暖，前三季度业绩预增超25%。<br><br> | 来源：<code>www.jogosdefutebol10.com
+</code></p><br><br><h3>华北高速涨超1.9%，京津冀路网业务稳健</h3><br><p>养老金现身特高压龙头调研，海外工程落地节奏引热议。<br><br> | 来源：<code>www.77ttk.com
+</code></p><br><br><h3>原油价格突破85美元/桶，油气开采板块盈利提升</h3><br><p>伊利股份乳制品量价齐升，前三季度业绩预增超20%。<br><br> | 来源：<code>www.nimendong.com
+</code></p><br><br><h3>全国登山健身大会覆盖百座名山，参与人次破500万</h3><br><p>运达股份风电整机盈利修复：行业底部的经营优化逻辑。<br><br> | 来源：<code>www.zkcom-iot.com
+</code></p><br><br><h3>五粮液中秋动销超预期，单季业绩预告超预期</h3><br><p>国家版本馆全部建成开放，典藏中华文脉珍贵资源。<br><br> | 来源：<code>www.thepodala.com
+</code></p><br><br><h3>宠物友好景区数量破千，携宠出游成为家庭消费新选择</h3><br><p>百亿私募组团调研光模块企业，1.6T产品送样海外客户。<br><br> | 来源：<code>www.tpyqczl.com
+</code></p><br><br><h3>外资机构席位净买入双汇发展6400万，肉制品龙头获加仓</h3><br><p>百亿私募组团调研碳纤维企业，风电领域应用占比突破60%。<br><br> | 来源：<code>www.trqgzc.com
+</code></p><br><br><h3>大股东承诺6个月内不减持氢能标的，释放稳定股价信号</h3><br><p>首套房贷款利率突破2.9%，刚需购房成本创历史新低。<br><br> | 来源：<code>www.hnltjy.com
+</code></p><br><br><h3>券商研究所扎堆调研智能电网标的，特高压设备中标数据</h3><br><p>锦浪科技海外渠道优势：分布式光伏的全球渠道网络壁垒。<br><br> | 来源：<code>www.www.bbca.com.cn
+</code></p><br><br><h3>杀虫剂价格上涨12%，农化产业链景气回升</h3><br><p>中国轮滑队世锦赛包揽全部金牌，优势项目持续领跑世界。<br><br> | 来源：<code>www.www.gmgs.com.cn
+</code></p><br><br><h3>中国中车全球轨道交通布局：一带一路带来的增量空间</h3><br><p>上海斯诺克大师赛开幕，丁俊晖击败世界第一闯入四强。<br><br> | 来源：<code>www.www.abc.jx.cn
+</code></p><br><br><h3>国内宠物友好景区破千家，携宠游订单同比增长180%</h3><br><p>保利发展央企销售高增，前三季度业绩预增超20%。<br><br> | 来源：<code>www.tiantian8.com
