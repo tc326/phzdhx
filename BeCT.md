@@ -1,0 +1,21 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月28日 01时30分16秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>明阳智能大兆瓦风机放量，单季业绩预告超预期</h3><br><p>全国绿证交易规模突破1亿个，覆盖超20个高耗能行业。<br><br> | 来源：<code>www.jieruit.com
+</code></p><br><br><h3>新宙邦涨超4.5%，电解液盈利预期改善</h3><br><p>浙江建投异动拉升4.7%，浙江共同富裕区基建加码。<br><br> | 来源：<code>www.bjgengke.com
+</code></p><br><br><h3>中国通号高铁信号订单高增，单季业绩预告超预期</h3><br><p>长安汽车自主转型路径：从传统燃油车到新能源的蜕变。<br><br> | 来源：<code>www.kayhaerland.com
+</code></p><br><br><h3>全国青少年冰雪赛事覆盖南方城市，冰雪运动南展西扩</h3><br><p>日本央行结束负利率政策，日元汇率回升至130关口。<br><br> | 来源：<code>www.gzly118.com
+</code></p><br><br><h3>核聚变实验装置获重大进展，可控核聚变标的异动</h3><br><p>存款利率下调后居民储蓄搬家，A股新增开户数环比大增。<br><br> | 来源：<code>www.gntbz.cn
+</code></p><br><br><h3>万科A异动拉升，地产链反弹的关键位与风控思路</h3><br><p>养老金新进光伏逆变器标的，海外市占率提升获长期配置。<br><br> | 来源：<code>www.fm1033.cn
+</code></p><br><br><h3>世界乒乓球锦标赛中国队包揽5金，延续国乒辉煌</h3><br><p>CBA联赛总决赛收视率创新高，本土球员表现亮眼。<br><br> | 来源：<code>www.mmju.cn
+</code></p><br><br><h3>拓普集团护城河分析：汽车零部件平台型企业的长期价值</h3><br><p>产业基金组团调研后集中增持光模块企业，合计投入超10亿。<br><br> | 来源：<code>www.jbhn.cn
+</code></p><br><br><h3>网易有道教育大模型落地，AI个性化学习系统覆盖千万学生</h3><br><p>苏炳添复出百米跑出9秒98，重返世界顶尖选手行列。<br><br> | 来源：<code>www.pinlie.cn
+</code></p><br><br><h3>首套房贷款利率突破2.9%，刚需购房成本创历史新低</h3><br><p>QFII大幅加仓光伏支架标的，跟踪支架海外渗透率提升获看好。<br><br> | 来源：<code>www.ituijie.com
+</code></p><br><br><h3>中国男子沙滩排球队闯入亚运会决赛，创历史最佳成绩</h3><br><p>涪陵榨菜异动拉升3.8%，产品提价传导顺利。<br><br> | 来源：<code>www.mc53.cn
+</code></p><br><br><h3>大股东耗资3.8亿增持钙钛矿设备标的，助力核心设备研发</h3><br><p>北向资金单日买入海康威视3.2亿，AI安防龙头获外资流入。<br><br> | 来源：<code>www.szhdly.com.cn
+</code></p><br><br><h3>工业母机龙头登陆北交所，五轴机床市占率国内第一</h3><br><p>尿素价格单月上涨9%，化肥板块迎来产品涨价催化。<br><br> | 来源：<code>www.88684.org
+</code></p><br><br><h3>全国武夷山国家公园生态监测系统建成，生物多样性数据实时采集</h3><br><p>养老金新进车载芯片龙头，布局车规级半导体赛道。<br><br> | 来源：<code>www.fjzp.net
+</code></p><br><br><h3>冷链物流扶持政策，冷链物流板块集体上涨</h3><br><p>电感产品价格上涨3%，电子全产业链盈利优化。<br><br> | 来源：<code>www.hanchaofan.com
+</code></p><br><br><h3>全国光伏装机容量突破9亿千瓦，分布式光伏占比超60%</h3><br><p>北方稀土稀土量价齐升，前三季度业绩预增超50%。<br><br> | 来源：<code>www.yinxi.net
+</code></p><br><br><h3>汽车下乡补贴政策出台，自主车企标的全线上涨</h3><br><p>外资单日扫货阳光电源15亿，逆变器龙头外资持仓创新高。<br><br> | 来源：<code>www.jogosdefutebol10.com
+</code></p><br><br><h3>京沪高铁涨超2.9%，暑运客流数据超预期</h3><br><p>北向资金单日扫货五粮液2.3亿，白酒龙头获外资持续流入。<br><br> | 来源：<code>www.nimendong.com
+</code></p><br><br><h3>长电科技放量上涨4.8%，先进封装订单饱满</h3><br><p>实控人兜底式增持AI大模型标的，员工参与规模超预期。<br><br> | 来源：<code>www.captainandthechief.com
+</code></p><br><br><h3>智飞生物异动拉升4.9%，疫苗产品批签发量回升</h3><br><p>跨境支付龙头登陆港股，海外结算规模年增速超80%。<br><br> | 来源：<code>www.szdesign-art.com
+</code></p><br><br><h3>长电科技放量上涨4.8%，先进封装订单饱满</h3><br><p>碳排放权交易市场扩容，碳交易标的全线异动。<br><br> | 来源：<code>www.vetb-us.com
