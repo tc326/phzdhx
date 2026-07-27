@@ -1,0 +1,21 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月28日 01时30分19秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>锂电铜箔价格上涨4%，铜箔龙头盈利边际改善</h3><br><p>中国举重队世锦赛打破12项世界纪录，优势项目持续领先。<br><br> | 来源：<code>www.yinxi.net
+</code></p><br><br><h3>北向资金连续增持工业母机龙头，高端制造获外资持续流入</h3><br><p>预制菜核心标的开启新股申购，B端渠道覆盖全国连锁餐饮。<br><br> | 来源：<code>www.jogosdefutebol10.com
+</code></p><br><br><h3>头部机构组团到访冷链物流标的，生鲜配送网络覆盖披露</h3><br><p>国产科幻小说海外获奖，中国想象力走向全球读者。<br><br> | 来源：<code>www.77ttk.com
+</code></p><br><br><h3>光伏组件出口数据亮眼：产业链盈利修复路径</h3><br><p>招商公路涨超2.4%，公路运营龙头价值凸显。<br><br> | 来源：<code>www.nimendong.com
+</code></p><br><br><h3>蔚来汽车换电模式优势：高端新能源车企的差异化壁垒</h3><br><p>组件价格触底反弹4%，光伏龙头盈利迎来修复窗口。<br><br> | 来源：<code>www.zkcom-iot.com
+</code></p><br><br><h3>苏州推出“姑苏八点半”升级活动，夜间消费场景拓展至全域</h3><br><p>中际旭创光模块技术优势：全球数通市场的份额扩张。<br><br> | 来源：<code>www.thepodala.com
+</code></p><br><br><h3>财政部新增专项债限额1.5万亿元，重点支持基建项目建设</h3><br><p>国产大模型日活用户破2亿，覆盖办公、教育、医疗全场景。<br><br> | 来源：<code>www.tpyqczl.com
+</code></p><br><br><h3>全面降准0.5个百分点，银行信贷投放能力大幅提升</h3><br><p>法律大模型上线，AI辅助律师办案效率提升2倍。<br><br> | 来源：<code>www.trqgzc.com
+</code></p><br><br><h3>保险资管扎堆调研汽车芯片标的，MCU芯片国产替代率突破50%</h3><br><p>天际股份放量上涨4.3%，锂电材料业务盈利修复。<br><br> | 来源：<code>www.hnltjy.com
+</code></p><br><br><h3>公募基金集中调研储能温控龙头，海外客户拓展引关注</h3><br><p>实控人承诺6个月内不减持机器人控制器标的，稳定股价。<br><br> | 来源：<code>www.www.bbca.com.cn
+</code></p><br><br><h3>通威股份渔光互补模式：农业+新能源的协同发展路径</h3><br><p>存量房贷利率下调释放居民现金流，可选消费板块受益。<br><br> | 来源：<code>www.www.gmgs.com.cn
+</code></p><br><br><h3>深股通席位单日买入锦浪科技1.4亿，逆变器标的获外资增持</h3><br><p>游戏大模型落地，AI实时生成游戏场景大幅降低开发成本。<br><br> | 来源：<code>www.www.abc.jx.cn
+</code></p><br><br><h3>招商公路涨超2.4%，公路运营龙头价值凸显</h3><br><p>外资机构集中调研跨境支付标的，海外结算规模环比大增。<br><br> | 来源：<code>www.tiantian8.com
+</code></p><br><br><h3>敬畏市场：无论你研究得多深，市场永远有你预料不到的变化</h3><br><p>万科A异动拉升3.6%，核心城市楼盘去化率改善。<br><br> | 来源：<code>www.zxyy999.com
+</code></p><br><br><h3>酸奶产品价格上调4%，乳业细分板块盈利提升</h3><br><p>智慧景区全覆盖，全国5A景区全部实现刷脸入园智能导览。<br><br> | 来源：<code>www.qianfangdiy.cn
+</code></p><br><br><h3>平高电气特高压开关技术：输配电设备龙头的国产替代</h3><br><p>全国县域旅游百强县榜单发布，江浙地区占比超六成。<br><br> | 来源：<code>www.tianmeichina.com
+</code></p><br><br><h3>超240家机构到访氢能燃料电池标的，商用车推广数据公开</h3><br><p>知名私募大手笔增持储能电池标的，海外户储订单获资本布局。<br><br> | 来源：<code>www.79lr.com
+</code></p><br><br><h3>全球绿色建筑市场规模突破3万亿美元，低碳建筑普及</h3><br><p>全球智能手机市场回暖，二季度出货量同比增长7%。<br><br> | 来源：<code>www.qzu.zj.cn
+</code></p><br><br><h3>AI手语翻译大模型上线，助力千万听障人士沟通无障碍</h3><br><p>结构性降息精准支持制造业，高端制造板块获定向利好。<br><br> | 来源：<code>www.tpyqczl.com
+</code></p><br><br><h3>时间是优秀企业的朋友：陪伴好公司成长，远比做短线暴利靠谱</h3><br><p>MLCC价格单月上涨5%，电容龙头盈利弹性释放。<br><br> | 来源：<code>www.trqgzc.com
+</code></p><br><br><h3>化肥价格集体上涨，农资板块迎来产品涨价催化</h3><br><p>洋河股份梦之蓝放量，单季业绩预告超预期。<br><br> | 来源：<code>www.jyylj.com
