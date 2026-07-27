@@ -1,0 +1,21 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月28日 01时30分21秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>中国五子连珠队世界杯包揽全部金牌，优势项目无人能敌</h3><br><p>存款利率下调推动理财收益率下行，权益基金发行回暖。<br><br> | 来源：<code>www.thepodala.com
+</code></p><br><br><h3>镍价单月上涨11%，不锈钢板块迎来涨价催化</h3><br><p>5年期以上LPR大幅下调20BP，地产链板块全线异动。<br><br> | 来源：<code>www.trqgzc.com
+</code></p><br><br><h3>洽洽食品涨超3.4%，坚果业务收入增速回升</h3><br><p>北向资金单日买入伊利股份1.2亿，乳业龙头获外资持续流入。<br><br> | 来源：<code>www.www.bbca.com.cn
+</code></p><br><br><h3>10年期国债收益率下行，保险板块配置压力边际缓解</h3><br><p>中国斯诺克选手闯入世锦赛决赛，创亚洲选手最佳战绩。<br><br> | 来源：<code>www.www.abc.jx.cn
+</code></p><br><br><h3>哈尔滨暑期游热度反超冬季，冰雪大世界夏季版开园迎客</h3><br><p>央行表态不搞"大水漫灌"，精准降息支持实体经济重点领域。<br><br> | 来源：<code>www.zxyy999.com
+</code></p><br><br><h3>五粮液重回165元，中秋旺季备货提前启动</h3><br><p>上海建工城市更新布局：上海本地基建龙头的区域优势。<br><br> | 来源：<code>www.tianmeichina.com
+</code></p><br><br><h3>国内AI算力规模突破50EFLOPS，稳居全球第二</h3><br><p>泸州老窖品牌升级：国窖1573的高端化成长路径解析。<br><br> | 来源：<code>www.qzu.zj.cn
+</code></p><br><br><h3>全球元宇宙相关产业规模突破2万亿美元，应用场景拓展</h3><br><p>高管团队集体增持工业AI龙头，合计增持金额超2.3亿。<br><br> | 来源：<code>www.trqgzc.com
+</code></p><br><br><h3>国产EDA工具实现全流程覆盖，半导体软件标的走强</h3><br><p>保险资管扎堆调研汽车芯片标的，MCU芯片国产替代率突破50%。<br><br> | 来源：<code>www.chtea.ac.cn
+</code></p><br><br><h3>中国电建绿电运营：新能源电站的长期稳定现金流价值</h3><br><p>全国家政服务业营收上半年同比增长16%，民生消费升温。<br><br> | 来源：<code>www.azi-cbt.com
+</code></p><br><br><h3>中医药振兴发展规划，中药全板块集体上涨</h3><br><p>AI应用落地加速：办公、安防、教育的商业化机会。<br><br> | 来源：<code>www.jieruit.com
+</code></p><br><br><h3>保利发展土储优势：核心城市优质土储的长期价值释放</h3><br><p>中国赛艇队奥运会夺得2金，水上项目实现历史性跨越。<br><br> | 来源：<code>www.kayhaerland.com
+</code></p><br><br><h3>中芯国际管理层优势：半导体制造龙头的经营效率提升</h3><br><p>韦尔股份CIS芯片布局：图像传感器行业的周期与成长。<br><br> | 来源：<code>www.gntbz.cn
+</code></p><br><br><h3>产业基金组团调研后集中增持医药流通龙头，合计投入超6亿</h3><br><p>机构席位大额买入东方电缆1.8亿，海缆龙头获长线资金布局。<br><br> | 来源：<code>www.mmju.cn
+</code></p><br><br><h3>全国城市建筑垃圾资源化利用率达70%，变废为宝生产建材</h3><br><p>阳光电源异动拉升6.6%，储能逆变器份额全球第一。<br><br> | 来源：<code>www.pinlie.cn
+</code></p><br><br><h3>车载激光雷达企业登陆科创板，量产交付进度超市场预期</h3><br><p>医疗器械集采结果温和，医疗设备标的全线异动。<br><br> | 来源：<code>www.mc53.cn
+</code></p><br><br><h3>算力需求持续高增：IDC、光模块、服务器的产业链机会</h3><br><p>东方财富获机构席位净买入4.2亿，互联网券商获资金加仓。<br><br> | 来源：<code>www.szhdly.com.cn
+</code></p><br><br><h3>高管团队集体调研后集中增持6G通信标的，合计增持超1亿</h3><br><p>工业互联网平台落地，工业数字化标的全线拉升。<br><br> | 来源：<code>www.88684.org
+</code></p><br><br><h3>央行新增5000亿元支小再贷款，精准支持小微企业发展</h3><br><p>亿纬锂能涨超6%，储能业务新增订单持续落地。<br><br> | 来源：<code>www.fjzp.net
+</code></p><br><br><h3>产业基金组团调研后集中增持风电轴承龙头，合计投入超4亿</h3><br><p>QFII新进跨境电商龙头，海外机构看好出口高增长逻辑。<br><br> | 来源：<code>www.hanchaofan.com
+</code></p><br><br><h3>中科院紫东太初大模型2.0发布，全模态能力国际领先</h3><br><p>河南卫视中国节日系列节目全网播放量突破200亿次。<br><br> | 来源：<code>www.yinxi.net
