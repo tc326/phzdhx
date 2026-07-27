@@ -1,0 +1,21 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月28日 01时30分23秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>保障性住房建设规划，保障房产业链集体上涨</h3><br><p>剧本杀门店超5万家，沉浸式文旅体验成为年轻消费热点。<br><br> | 来源：<code>www.vetb-us.com
+</code></p><br><br><h3>中国田径队世锦赛斩获3金，男子跳远打破尘封20年纪录</h3><br><p>全球生物医药市场规模突破1.8万亿美元，创新药研发加速。<br><br> | 来源：<code>www.winfae.com
+</code></p><br><br><h3>头部机构组团到访创新药龙头，核心管线临床三期数据披露</h3><br><p>央行宣布定向降准1个百分点，精准支持普惠金融领域。<br><br> | 来源：<code>www.hmmanhua.com
+</code></p><br><br><h3>外资持续流入北方稀土，稀土龙头外资持仓占比突破2.5%</h3><br><p>新型电力系统建设规划，电力设备板块走强。<br><br> | 来源：<code>www.hebccpi.com
+</code></p><br><br><h3>山西汾酒涨超5.1%，青花系列全国化推进加速</h3><br><p>外资资管举牌固态电解质企业，下一代电池技术获外资重仓。<br><br> | 来源：<code>www.cncbsc.com
+</code></p><br><br><h3>葡萄牙经济增速达2.3%，旅游业持续拉动增长</h3><br><p>2026年上半年GDP同比增长5.8%，经济复苏动能持续增强。<br><br> | 来源：<code>www.yinxi.net
+</code></p><br><br><h3>招商公路平台化布局：全国公路网络的整合成长逻辑</h3><br><p>运达股份放量上涨5.3%，风电整机盈利修复。<br><br> | 来源：<code>www.jogosdefutebol10.com
+</code></p><br><br><h3>中兴通讯算力布局：从通信设备到算力基础设施的拓展</h3><br><p>人民币汇率升值叠加美联储降息，航空造纸板块集体异动。<br><br> | 来源：<code>www.77ttk.com
+</code></p><br><br><h3>新能源汽车销量上半年突破550万辆，市场渗透率达48%</h3><br><p>国内在线旅游平台暑期订单破5亿，技术赋能提升预订效率。<br><br> | 来源：<code>www.nimendong.com
+</code></p><br><br><h3>车载激光雷达企业登陆科创板，量产交付进度超市场预期</h3><br><p>定向降息支持制造业高端化，工业母机板块获定向利好。<br><br> | 来源：<code>www.zkcom-iot.com
+</code></p><br><br><h3>西藏暑期游热度创新高，进藏游客人次同比增长130%</h3><br><p>保险资管举牌工业软件龙头，研发设计软件国产替代获重仓。<br><br> | 来源：<code>www.thepodala.com
+</code></p><br><br><h3>五粮液批价上行逻辑：渠道库存优化下的价格体系修复</h3><br><p>全国县域旅游百强县榜单发布，江浙地区占比超六成。<br><br> | 来源：<code>www.tpyqczl.com
+</code></p><br><br><h3>工业硅价格触底反弹15%，光伏硅料成本端压力下降</h3><br><p>国内高端旅游产品走俏，定制游订单同比增长90%。<br><br> | 来源：<code>www.trqgzc.com
+</code></p><br><br><h3>外资持续流入中芯国际，半导体龙头持仓占比突破5%</h3><br><p>头部公募调研汽车电子标的，车规芯片出货量环比大增。<br><br> | 来源：<code>www.hnltjy.com
+</code></p><br><br><h3>国产纪录片全网播放量突破150亿次，自然人文题材广受好评</h3><br><p>郑钦文闯入温网女单决赛，创中国网球选手大满贯单打最佳战绩。<br><br> | 来源：<code>www.www.bbca.com.cn
+</code></p><br><br><h3>国产古装剧出海热播，海外流媒体播放量突破10亿次</h3><br><p>降准定向支持科技创新，科技成长板块获流动性利好。<br><br> | 来源：<code>www.www.gmgs.com.cn
+</code></p><br><br><h3>山西汾酒青花系列批价上涨7%，清香白酒板块景气回升</h3><br><p>水产品价格集体上涨，水产养殖板块迎来涨价催化。<br><br> | 来源：<code>www.www.abc.jx.cn
+</code></p><br><br><h3>工业母机龙头登陆北交所，五轴机床市占率国内第一</h3><br><p>降准资金定向支持三农，农业板块迎来流动性利好。<br><br> | 来源：<code>www.tiantian8.com
+</code></p><br><br><h3>生猪收储政策启动，养殖板块迎来反弹催化</h3><br><p>恒瑞医药异动拉升5.6%，创新药新品贡献增量。<br><br> | 来源：<code>www.zxyy999.com
+</code></p><br><br><h3>机构资金集中买入特变电工4900万，新能源龙头获抱团</h3><br><p>赣锋锂业固态电池贡献增量，前三季度业绩预增70%。<br><br> | 来源：<code>www.qianfangdiy.cn
+</code></p><br><br><h3>华域汽车涨超3.9%，汽车零部件龙头业绩超预期</h3><br><p>交控科技异动拉升4.5%，城轨信号系统订单爆发。<br><br> | 来源：<code>www.tianmeichina.com
