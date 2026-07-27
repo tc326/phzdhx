@@ -1,0 +1,21 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月27日 20时19分54秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>福耀玻璃异动拉升3.7%，汽车玻璃出口数据亮眼</h3><br><p>三亚暑期酒店预订量同比增长35%，滨海度假持续火热。<br><br> | 来源：<code>www.88684.org
+</code></p><br><br><h3>养老金现身碳化硅衬底龙头，6英寸衬底产能释放进度披露</h3><br><p>高管团队集体调研后集中增持6G通信标的，合计增持超1亿。<br><br> | 来源：<code>www.fjzp.net
+</code></p><br><br><h3>央行表态加大逆周期调节，后续仍有降准降息空间</h3><br><p>券商研究所扎堆调研智能电网标的，特高压设备中标数据。<br><br> | 来源：<code>www.hanchaofan.com
+</code></p><br><br><h3>跨境支付龙头登陆港股，海外结算规模年增速超80%</h3><br><p>保利发展土储优势：核心城市优质土储的长期价值释放。<br><br> | 来源：<code>www.yinxi.net
+</code></p><br><br><h3>城市漫步Citywalk成新潮流，相关搜索量同比暴涨300%</h3><br><p>公募基金集中调研智慧交通标的，车路协同项目落地节奏。<br><br> | 来源：<code>www.jogosdefutebol10.com
+</code></p><br><br><h3>全国心理健康服务体系覆盖所有高校，心理疏导惠及千万学生</h3><br><p>全国珍稀濒危植物保护名录更新，超千种植物得到有效保护。<br><br> | 来源：<code>www.nimendong.com
+</code></p><br><br><h3>别把运气当成能力：短期靠运气赚的钱，迟早会凭实力亏回去</h3><br><p>中国围棋队包揽亚运会全部金牌，延续项目统治力。<br><br> | 来源：<code>www.captainandthechief.com
+</code></p><br><br><h3>散户最容易踩的坑：涨一点就卖，跌一点就割，最后两头亏</h3><br><p>养老金新进光伏逆变器标的，海外市占率提升获长期配置。<br><br> | 来源：<code>www.szdesign-art.com
+</code></p><br><br><h3>重庆洪崖洞暑期客流创新高，网红打卡点日均接待超15万</h3><br><p>锂电铜箔价格上涨4%，铜箔龙头盈利边际改善。<br><br> | 来源：<code>www.vetb-us.com
+</code></p><br><br><h3>头部机构组团到访中药创新药标的，医保谈判结果超预期</h3><br><p>5年期LPR下调15BP，地产链估值修复行情延续。<br><br> | 来源：<code>www.winfae.com
+</code></p><br><br><h3>低空旅游市场爆发，上半年直升机观光订单同比增长200%</h3><br><p>全面降准叠加定向降息，宽货币向宽信用传导加速。<br><br> | 来源：<code>www.hmmanhua.com
+</code></p><br><br><h3>头部公募调研汽车电子标的，车规芯片出货量环比大增</h3><br><p>深股通席位单日买入锦浪科技1.4亿，逆变器标的获外资增持。<br><br> | 来源：<code>www.hebccpi.com
+</code></p><br><br><h3>头部机构组团到访风电轴承龙头，大兆瓦轴承市占率提升</h3><br><p>基金公司集体到访人形电机龙头，力矩电机产能释放数据。<br><br> | 来源：<code>www.cncbsc.com
+</code></p><br><br><h3>五粮液重回160元，关键点位的多空博弈分析</h3><br><p>液态奶价格上涨3%，乳制品板块迎来涨价催化。<br><br> | 来源：<code>www.yinxi.net
+</code></p><br><br><h3>牧原股份疫病防控能力：生猪养殖龙头的核心经营壁垒</h3><br><p>暑期托管服务全面推行，免费提供兴趣课程和作业辅导。<br><br> | 来源：<code>www.jogosdefutebol10.com
+</code></p><br><br><h3>医疗大模型辅助手术落地，精准操作误差控制在0.1毫米</h3><br><p>长安汽车涨停封板，自主车企销量超预期引爆行情。<br><br> | 来源：<code>www.77ttk.com
+</code></p><br><br><h3>全国商品房待售面积同比下降4.3%，库存去化周期回归合理区间</h3><br><p>普惠小微贷款利率进一步下行，中小微企业盈利改善。<br><br> | 来源：<code>www.nimendong.com
+</code></p><br><br><h3>多地发放消费券超200亿元，撬动社会消费超千亿元</h3><br><p>调味品行业标准升级，调味品龙头板块走强。<br><br> | 来源：<code>www.zkcom-iot.com
+</code></p><br><br><h3>阳光电源异动拉升6.6%，储能逆变器份额全球第一</h3><br><p>北约峰会发布新战略文件，调整东翼防御部署。<br><br> | 来源：<code>www.thepodala.com
+</code></p><br><br><h3>多地推出“文旅+体育”融合产品，马拉松、徒步游订单激增</h3><br><p>机构席位大额买入洋河股份6900万，白酒龙头获长线布局。<br><br> | 来源：<code>www.tpyqczl.com
+</code></p><br><br><h3>六氟磷酸锂价格单月上涨10%，电解液龙头盈利修复</h3><br><p>国内大模型国际标准制定话语权提升，主导十余项国际标准。<br><br> | 来源：<code>www.trqgzc.com
