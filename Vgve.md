@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月29日 02时54分39秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>食品质量安全监管优化，头部食品标的拉升</h3><br><p>亨通光电海洋能源布局：光通信龙头的第二成长曲线。<br><br> | 来源：<code>https://zh-shouyin.com.cn
+</code></p><br><br><h3>大模型安全国家标准发布，行业合规发展有章可循</h3><br><p>中国高尔夫球选手首次夺得美巡赛冠军，实现历史性突破。<br><br> | 来源：<code>https://zh-shunu.com.cn
+</code></p><br><br><h3>国内多模态大模型实现3D场景实时渲染，元宇宙体验升级</h3><br><p>产业基金组团调研后集中增持医药流通龙头，合计投入超6亿。<br><br> | 来源：<code>https://zh-sm.com.cn
+</code></p><br><br><h3>长安汽车放量上涨4.9%，深蓝品牌月销破3万</h3><br><p>海外对冲基金集中调研CXO龙头，新签订单增速超预期。<br><br> | 来源：<code>https://zh-tiaojiao.com.cn
+</code></p><br><br><h3>东方电气氢能布局：能源装备龙头的第二成长曲线解析</h3><br><p>零跑汽车异动拉升7.9%，性价比车型销量爆发。<br><br> | 来源：<code>https://zh-wuma.com.cn
+</code></p><br><br><h3>降准资金定向支持绿色能源，光伏风电板块获流动性利好</h3><br><p>钢材价格单月上涨7%，钢铁板块迎来产品涨价催化。<br><br> | 来源：<code>https://zh-xiuxiushipin.com.cn
+</code></p><br><br><h3>极端暴雨灾害预警，水利基建标的全线上涨</h3><br><p>机构席位大额买入澜起科技8500万，内存芯片龙头获布局。<br><br> | 来源：<code>https://zh-yazhoujingpin.com.cn
+</code></p><br><br><h3>产业基金组团调研后集中增持氢能储运龙头，合计投入超5亿</h3><br><p>外资持续流入亿纬锂能，储能龙头外资持仓占比突破4%。<br><br> | 来源：<code>https://zh-yazhoutiantang.com.cn
+</code></p><br><br><h3>万华化学研发投入优势：化工龙头持续技术迭代的底层逻辑</h3><br><p>百度智能云大模型平台开放，百万开发者接入生态。<br><br> | 来源：<code>https://zh-yin.com.cn
+</code></p><br><br><h3>全国糖尿病患者规范管理人数超8000万，并发症发生率下降</h3><br><p>新增开户数环比大增，互联网券商板块全线走强。<br><br> | 来源：<code>https://zh-yinghuashipin.com.cn
+</code></p><br><br><h3>中国水球队世锦赛闯入八强，水上集体项目进步显著</h3><br><p>中兴通讯沿趋势线上行，通信板块的轮动机会。<br><br> | 来源：<code>https://zh-yinluan.com.cn
+</code></p><br><br><h3>车载激光雷达企业登陆科创板，量产交付进度超市场预期</h3><br><p>招商银行零售银行优势：高ROE背后的经营质量解析。<br><br> | 来源：<code>https://zh-yiqicao.com.cn
+</code></p><br><br><h3>全国居民人均住房建筑面积达42平方米，居住条件持续改善</h3><br><p>光伏玻璃价格单月上涨8%，玻璃龙头盈利弹性大幅释放。<br><br> | 来源：<code>https://zh-youyou.com.cn
+</code></p><br><br><h3>暑期档电影票房突破200亿元，国产主旋律影片领跑市场</h3><br><p>杭州亚运会后首个体育年，全国赛事活动数量同比增长40%。<br><br> | 来源：<code>https://zh-yuputuan.com.cn
+</code></p><br><br><h3>1年期MLF利率下调带动全市场利率下行，债券牛市延续</h3><br><p>头部券商到访光伏胶膜标的，原材料成本下降弹性曝光。<br><br> | 来源：<code>https://zh-zuoai.com.cn
+</code></p><br><br><h3>新能源汽车换电模式推广政策，换电产业链拉升</h3><br><p>赣锋锂业回收业务布局：锂电回收的长期成长空间解析。<br><br> | 来源：<code>https://zhang-ri-guangyin.com.cn
+</code></p><br><br><h3>钯价连续上涨9%，汽车尾气催化板块盈利改善</h3><br><p>宁德时代单日大涨6.2%，动力电池赛道迎来集体反弹。<br><br> | 来源：<code>https://zhangbaizhiyanzhaomen.net.cn
+</code></p><br><br><h3>别被短期波动洗下车：核心资产的价值需要时间兑现</h3><br><p>焦炭价格开启第五轮提涨，焦化板块盈利迎来改善。<br><br> | 来源：<code>https://zhaoyangshui.com.cn
+</code></p><br><br><h3>露营经济持续升温，全国露营地数量突破4万个</h3><br><p>充电桩下乡政策落地，充电桩产业链标的走强。<br><br> | 来源：<code>https://zhengtaidapigu.cn
+</code></p><br><br><h3>三星堆新出土文物超千件，古蜀文明研究取得重大突破</h3><br><p>全国工业用水重复利用率达92%，节水型工业体系建成。<br><br> | 来源：<code>https://zhengtaimanhua.com.cn
