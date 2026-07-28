@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月29日 02时54分18秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>东方财富互联网券商生态：流量变现的长期成长逻辑</h3><br><p>1年期LPR下调5BP，实体经济融资成本稳步下行。<br><br> | 来源：<code>https://008-pg-official-login.com
+</code></p><br><br><h3>全国保障性住房建设进度过半，年内新开工超300万套</h3><br><p>深高速放量上涨2.5%，深圳区域路网资产优质。<br><br> | 来源：<code>https://008pg-guoji-app.com
+</code></p><br><br><h3>上半年全国新能源发电量同比增长35%，占全社会用电量比重超20%</h3><br><p>全球绿色建筑市场规模突破3万亿美元，低碳建筑普及。<br><br> | 来源：<code>https://1024hegongchang.com.cn
+</code></p><br><br><h3>液态奶价格上涨3%，乳制品板块迎来涨价催化</h3><br><p>葡萄牙经济增速达2.3%，旅游业持续拉动增长。<br><br> | 来源：<code>https://1024xp.com.cn
+</code></p><br><br><h3>游资知名席位联手买入中国船舶2亿，造船标的获资金追捧</h3><br><p>全国绿色出行创建行动推进，超百个城市建成绿色交通体系。<br><br> | 来源：<code>https://17-3-guanyu-xing-jiaoyu-xuanchuanpian.com.cn
+</code></p><br><br><h3>尿素价格单月上涨9%，化肥板块迎来产品涨价催化</h3><br><p>上半年进出口总额同比增长4.2%，外贸韧性持续凸显。<br><br> | 来源：<code>https://17c18qicao.com.cn
+</code></p><br><br><h3>机器人赛道持续升温：核心零部件、整机制造的投资机会</h3><br><p>敬畏市场：无论你研究得多深，市场永远有你预料不到的变化。<br><br> | 来源：<code>https://17caowang.com.cn
+</code></p><br><br><h3>多地推出“文旅+科技”项目，元宇宙景区落地超100家</h3><br><p>游资知名席位联手买入中国船舶2亿，造船标的获资金追捧。<br><br> | 来源：<code>https://17capcc.com.cn
+</code></p><br><br><h3>全国远程医疗覆盖所有县域，优质医疗资源下沉至基层</h3><br><p>海尔智家高端化布局：白电龙头的品牌溢价能力。<br><br> | 来源：<code>https://17ccc.com.cn
+</code></p><br><br><h3>长安汽车深蓝品牌定位：主流新能源市场的差异化竞争</h3><br><p>全国城市轨道交通全部实现电气化，绿色出行比例超70%。<br><br> | 来源：<code>https://17cccc.com.cn
+</code></p><br><br><h3>南京马拉松开跑，选手破3万赛事服务升级体验大幅提升</h3><br><p>5年期以上LPR大幅下调20BP，地产链板块全线异动。<br><br> | 来源：<code>https://17ccccyiqicao.com.cn
+</code></p><br><br><h3>商汤日日新大模型4.0上线，智慧城市场景落地超百城</h3><br><p>澜起科技内存接口芯片优势：全球细分赛道的龙头价值。<br><br> | 来源：<code>https://17ccchigua.com.cn
+</code></p><br><br><h3>料酒价格上涨4%，调味品细分板块迎来行情</h3><br><p>长城汽车异动拉升5.9%，坦克系列销量持续高增。<br><br> | 来源：<code>https://17cccmeiridasai.com.cn
+</code></p><br><br><h3>中兴通讯算力布局：从通信设备到算力基础设施的拓展</h3><br><p>中天科技放量上涨4.7%，海缆+储能双轮驱动。<br><br> | 来源：<code>https://17cchigua.com.cn
+</code></p><br><br><h3>重庆马拉松开跑，3万跑者体验山城赛道赛事热度创新高</h3><br><p>AI语音合成技术突破，克隆声音仅需3秒样本。<br><br> | 来源：<code>https://17ccn.com.cn
+</code></p><br><br><h3>北向资金连续5日加仓贵州茅台，持仓占比创历史新高</h3><br><p>杭州马拉松开跑，3.5万跑者体验钱塘江赛道。<br><br> | 来源：<code>https://17ccom.com.cn
+</code></p><br><br><h3>宁德时代突破关键压力位，后续上涨空间与支撑位一览</h3><br><p>美联储连续降息后美元走弱，原油价格迎来趋势性反弹。<br><br> | 来源：<code>https://17ccomchigua.com.cn
+</code></p><br><br><h3>国产古装剧出海热播，海外流媒体播放量突破10亿次</h3><br><p>大股东耗资6.3亿增持数字人民币标的，助力场景覆盖扩张。<br><br> | 来源：<code>https://17ccomgithub.com.cn
+</code></p><br><br><h3>全国工业企业利润同比增长8.7%，盈利水平持续修复</h3><br><p>基金公司集体到访氢能龙头，燃料电池车推广进度超预期。<br><br> | 来源：<code>https://17ccomqicao.com.cn
+</code></p><br><br><h3>国内大模型行业应用案例破百万，覆盖千行百业</h3><br><p>极端高温天气来袭，电力运营板块集体拉升。<br><br> | 来源：<code>https://17ccomrukou.com.cn
